@@ -1,7 +1,7 @@
 ### Thirteen equals one
 equal: 
 v. 等于
-He equaled the world record.
+He equaled the world record.  
 Nobody equals him in strength.
 Nobody matches him in strength.
 n.
