@@ -1,13 +1,13 @@
 ### Thirteen equals one
 equal: 
 v. 等于
-He equaled the world record。
+He equaled the world record.
 Nobody equals him in strength.
 Nobody matches him in strength.
 n.
 In English she has no equal in her class.
 
-be / stand head and shoulders above sb
+be / stand head and shoulders above sb.
 be much better than others
 
 adj.
