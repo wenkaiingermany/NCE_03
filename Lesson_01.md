@@ -232,4 +232,55 @@ As no pumas had been reported missing from any zoo in the country, ...
 The fire was reported controlled.
 It is reported that the fire was controlled.
 
+complain of / about sth.
+complain (that)
+She complained that no one had been at the airport to meet her.
 
+on a business / honeymoon trip
+
+on a journey / voyage / expedition / tour...
+
+be convinced that...
+convince sb. of sth.
+
+Every rule has exceptions
+
+in that... 因为
+except / but that...
+
+must have done
+You must have been ill yesterday. You looked so pale.
+must do
+She knew that it must be the baker.
+
+may / might have done
+
+can not / could not have done
+You can't have been ill yesterday. I saw you going shopping with your wife.
+The girl aksed to see a timetable, feeling sure that her father could not have made such a mistake.
+
+should / ought to have done
+should not / ought not to have done
+You should have finished your work yesterday.
+I shouldn't have shouted at you yesterday.
+
+in the possession of sb. / in one's possession
+in possession of sth.
+The book is in my possession.
+I am in possession of the book.
+
+in the charge of sb. / in one's charge
+in charge of...
+The bookstore is in my charge.
+I'm in charge of the bookstore.
+
+manage to do 设法完成了某事
+Our vicar is always raising money for one cause of another, but he has never managed to get enough money to have the church clock repaired.
+
+fail to do 没能完成某事
+When the journalist again failed to reply, the editor reluctantly published the article as it had originally been written.
+
+### It is disturbing to think that a dangerous wild animal is still at large in the quiet countryside.
+
+It is .... to think that...
+It is worrying / exciting / comforting / amusing / irritating to think that...
