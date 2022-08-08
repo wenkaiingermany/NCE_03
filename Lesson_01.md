@@ -145,7 +145,7 @@ take ... lightly
   
 ### When reports came into London Zoo that a wild puma had been spotted forty-five miles south of London, they were not taken seriously.  
   
-When news came into the natinal museum that an ancient tomb had been found, 100 kilimeters south of Xi'an, it was taken seriously.  
+When news came into the national museum that an ancient tomb had been found, 100 kilimeters south of Xi'an, it was taken seriously.  
   
 give descritions  
 ... descriptions which were given by people...  
