@@ -273,7 +273,7 @@ The bookstore is in my charge.
 I'm in charge of the bookstore.  
   
 manage to do 设法完成了某事  
-Our vicar is always raising money for one cause of another, but he has never managed to get enough money to have the church clock repaired.  
+Our vicar is always raising money for one cause or another, but he has never managed to get enough money to have the church clock repaired.  
   
 fail to do 没能完成某事  
 When the journalist again failed to reply, the editor reluctantly published the article as it had originally been written.  
