@@ -147,7 +147,7 @@ take ... lightly
   
 When news came into the national museum that an ancient tomb had been found, 100 kilimeters south of Xi'an, it was taken seriously.  
   
-give descritions  
+give descriptions  
 ... descriptions which were given by people...  
 make descriptions  
 ... descriptions made by people....  
