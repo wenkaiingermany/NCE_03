@@ -112,7 +112,7 @@ Vitamin C is found in citrus fruit.
   
 Giant pandas are large, bear-like animals found in Sichuan province, China.  
   
-However, a new type of humor, which stems largely from the US, has revently come into fashion.  
+However, a new type of humor, which stems largely from the US, has recently come into fashion.  
   
 The dealer told him that it had just come in, but that he could not be bothered to open it.   
   
