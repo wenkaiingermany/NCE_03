@@ -40,4 +40,82 @@ arouse one's pity / anger...
   
 I heard that you recently changed jobs, and you got a good raise, right? Congratulations!  
 Thanks! I think the new job will be much more satisfying.  
+  
+be always doing sth.   厌烦的语气  
+He is always being late.  
+People are always talking about the problems of youth.  
+  
+Mary is always complaining about her job.  
+Maybe if you try typing letters every day, you'd see what it's like.  
+  
+The woman would understand if she did Mary's job.  
+  
+be forever doing sth.  
+He is forever talking about the friendly people, the clean atmosphere, the closeness to nature and gentle pace of living.  
+  
+be constantly / continually doing sth.  
+The boys are constantly / continually arguing.  
+  
+Your behavior reflects on me, and i can't do my job if you're contantly humuliating me.
+Constantly? Aside from today, give me one example.  
+  
+reflect on sb.  
+  
+keep (on) doing sth.  
+From the moment he arrived there, he kept on pestering his doctor to tell him when he would be able to go home.  
+In the process, he enjoyed himself thoroughly and kept telling everybody how much he hated hospitals.  
+  
+do sth. all the time.  
+I thought the doctor said you should stay off your foot until the swelling goes down.  
+She did. It just makes me uncomfortable to ask my friends to wait on me all the time.   
+wait on sb. 为某人服务  
+  
+One would expect them to know their parts by heart and never have cause to falter.  
+  
+one ... or another  
+He is always asking me for money for one cause or another.  
+Beginners will err at one time of another.  
+Everyone can con'tribute to society in one way or another.  
+  
+one ... after another  
+one day after another  
+encounter one difficulty after another  
+achieve one success after another  
+  
+As no pumas had been reported missing from any zoo in the country, this one must have been in the possession of a private collector and somehow managed to escape.  
+  
+have sth. done 请某人做某事  
+I'm going to have my hair cut this weekend.  
+people woudl rather pay large sums of money than have their life work destroyed by gangsters.  
+  
+King Charles I had his head cut off.  
+The house had its window broken in the explosion.  
+  
+The sea bed was scoured with powerful nets and there was tremendous excitement on board when a chest was raised from the bottom.  
 
+He lost his confidence -> Confidence deserted him.  
+I couldn't sleep that night. -> That night sleep eluded me.  
+We only travelled half the distance at sunset. -> Sunset met us halfway.  
+The past few years witnessed the great influx of foreigners to China, for travelling, studies or business.  
+    
+My little daughter is always complaining of one illness or another, but she has never managed to get permission to be at home.  
+    
+used to do  
+I used to get up early.  
+
+be / become / get used to n./doing  
+I'm used to getting up early.  
+'We'll get used to that, Bill,' said the vicar.  
+Life is not fair, get used to it. --Bill Gates  
+
+be accustomed to (doing) sth.  
+For men accustomed to eating seven-course dinners and sleeping between fine linen sheets at home, the change to the Alps must have been hard indeed.  
+  
+strike the hours   
+It would strike tweleve in twenty minuts.  
+  
+ever since: adv. / prep. / conj. 从那以后， 一直......(用完成时)  
+There are countless people who, ever since their early years, have learned to associate snails with food.  
+You know how she feels about you. It's been the same way ever since we were kids.  
+  
+Lao Wang who used to work hard day and night was laid off two years ago and has been lazy ever since.  
