@@ -199,7 +199,7 @@ When the archaeologists reconstructed the fragments, they were amazed to find th
   
 疑问词 + ever (whenever, wherever, whoever, whichever, whatever...)有两个含义:  
 1. 表示 "无论..." 引导让步状语从句 = no matter + 疑问词  
-No matter where you live, you would find it difficult not to laugh at, say, Charlie Chapoin's early films.  
+No matter where you live, you would find it difficult not to laugh at, say, Charlie Chaplin's early films.  
 2. 表示 "到底..." 用于疑问句中  
 Whatever are you doing up here Bill? asked the vicar in surprise.  
 Wherever did you go yesterday?  
