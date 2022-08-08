@@ -39,5 +39,5 @@ arouse
 arouse one's pity / anger...  
   
 I heard that you recently changed jobs, and you got a good raise, right? Congratulations!  
-Thanks! I think the new job will be much more sarifying.  
+Thanks! I think the new job will be much more satisfying.  
 
