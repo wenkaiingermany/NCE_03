@@ -30,7 +30,7 @@ raise pigs. 养猪
 He has a big family to raise  
   
 rise  
-The sun alse rises  
+The sun also rises  
   
 arise arose arisen 问题或麻烦等出现  
 Problems arose.  
