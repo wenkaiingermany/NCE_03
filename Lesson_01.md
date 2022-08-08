@@ -154,7 +154,7 @@ make descriptions
   
 ### The hunt for the puma began in a small village where a woman picking blackberries saw a large cat only five yards away from her.  
   
-John had a very goog day and put his wallet containing €3.000 into the microwave oven for safekeeping.  
+John had a very good day and put his wallet containing €3.000 into the microwave oven for safekeeping.  
   
 For hundreds of years, St. Bernard dogs have saved the lives of travellers crossing the dangerous Pass.   
   
