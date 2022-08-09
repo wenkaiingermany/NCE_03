@@ -102,12 +102,12 @@ My little daughter is always complaining of one illness or another, but she has 
     
 used to do  
 I used to get up early.  
-
+  
 be / become / get used to n./doing  
 I'm used to getting up early.  
 'We'll get used to that, Bill,' said the vicar.  
 Life is not fair, get used to it. --Bill Gates  
-
+  
 be accustomed to (doing) sth.  
 For men accustomed to eating seven-course dinners and sleeping between fine linen sheets at home, the change to the Alps must have been hard indeed.  
   
@@ -119,3 +119,59 @@ There are countless people who, ever since their early years, have learned to as
 You know how she feels about you. It's been the same way ever since we were kids.  
   
 Lao Wang who used to work hard day and night was laid off two years ago and has been lazy ever since.  
+  
+wake (up): vi. & vt.  
+The doorbell rang loud enough to wake the dead.  
+  
+start n.  
+wake (up) with a start.  
+She woke from the dream with a start.  
+  
+with + 名词 作状语修饰谓语动词  
+The officer went through the case with great care.  
+He had spotted a tiny bottle at the bottom of my case and he pounced on it with delight.  
+The I added with a smile.  
+His few meterial possessions make it possible for him to move from place to place with ease.  
+She faced the difficulty calmly -> She faced the difficulty with calmness.  
+I looked at her curiously. -> I looked at her with curiosity.  
+She spoke to me tenderly.  -> She spoke to me with tenderness.  
+I greeted Philip enthusiastically -> I greeted Philip with enthusiasm.  
+  
+Looking at his watch, he swa that it was one o'clock,...  
+When he looked at his watch, he saw that it was one o'clock.  
+  
+非谓语(doing; done; to do)作状语时，一般情况下其隐含的主语应该与主句主语保持一致.  
+WRONG: Looking at his wathc, it was one o'clock.  
+  
+It will be a long time before we meet again.  
+I hadn't waited long before ha came.  
+  
+arm sb. with sth.  
+Armed with a torch, the vicar went up into the clock tower...  
+sb. carry sth.  
+Carrying a torch, the vicar went up into the clock tower...  
+  
+go on v. 发生  
+What's going on here?  
+
+happen, occur, come up , come about  
+take place 意料之中的发生  
+The funeral will take place on Monday.  
+strike  
+Most poeple were fast asleep when the earthquake struck.  
+coincide (with...)  
+When i came, he was just about to leave. -> My arrival coincided with his departure.  
+  
+catch sight of...  
+catch a glimpse of...  
+glimpse...  
+  
+figure  
+  
+A farm worker, who stayed up all night, claimed to have seen a figure cutting corn in the moonlight.  
+One of the most colorful figures in boxing history was Daniel Mendoza, who was born in 1764.  
+  
+recognize... as...  
+I recognized her as one of my classmates.  
+  
+grocer grocery  
