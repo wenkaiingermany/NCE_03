@@ -175,3 +175,67 @@ recognize... as...
 I recognized her as one of my classmates.  
   
 grocer grocery  
+  
+Whatever are you doing here?  
+Wherever did you go yesterday?  
+When ever am i going to see you again?  
+  
+on earth  
+What on earth has happened to trouble you so?  
+  
+in the world  
+What in the world are you doing here at seven in the morning?  
+  
+In God's / heaven's name  
+What in God's name was the huge bang?  
+Where in heaven's name have you been?  
+  
+have been doing 现在完成进行时  
+表示持续性的动作一直到现在，而且还有可能继续下去  
+  
+night after night  
+night by night  
+every night  
+one night after another  
+
+Oceans apart, day after day, and i slowly go insane.  
+  
+for weeks, for hours, for months, for years, for centuries  
+  
+was / were hoping... 表达一种试探性的，委婉的语气  
+I was hoping you could marry me.  
+  
+强调肯定式(emphatic positive)  
+在肯定句和祈使句中，在谓语动词前加上助动词do以加强语气。只用于一般现在时(do, does) 和一般过去时(did) 中  
+I do need a car.  
+He does speak English well.  
+So you did come after all.  
+Come in. Do come in.  
+Shut up! Do shut up!  
+  
+as well  
+as well as  
+You've probebly woken up everyone in the village as well as me.  
+  
+still 尽管如此，还是  
+nevertheless  
+nonetheless  
+all the same  
+just the same  
+  
+The girl is not beautiful. Still, I like her very much.  
+Nevertheless / nonetheless / all the same / just the same, i like her very much.  
+  
+Still, I'm glad (that) the bell is working again.  
+..., but I'm afraid (that) at one o'clock it will strike thirteen times and there is nothing I can do about it.  
+  
+there is nothing I can do about it.  
+The telephone is out of order, and there is nothing I can do about it.  
+I know you are not satisfied, but there is nothing I can do about it.  
+We apologize for this, but there is nothing we can do about it.  
+  
+as good as = almost  
+The injured man is as good as dead.  
+Everything is as good as settled.  
+As far as I could see, it needed only a minor adjustment: a turn of a screw here, a little tightening up there, a drop of oil and it would be as good as new.  
+
