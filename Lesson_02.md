@@ -141,7 +141,7 @@ Looking at his watch, he swa that it was one o'clock,...
 When he looked at his watch, he saw that it was one o'clock.  
   
 非谓语(doing; done; to do)作状语时，一般情况下其隐含的主语应该与主句主语保持一致.  
-WRONG: Looking at his wathc, it was one o'clock.  
+WRONG: Looking at his watch, it was one o'clock.  
   
 It will be a long time before we meet again.  
 I hadn't waited long before ha came.  
