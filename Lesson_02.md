@@ -215,7 +215,7 @@ Shut up! Do shut up!
   
 as well  
 as well as  
-You've probebly woken up everyone in the village as well as me.  
+You've probably woken up everyone in the village as well as me.  
   
 still 尽管如此，还是  
 nevertheless  
