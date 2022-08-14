@@ -255,3 +255,65 @@ Under normal conditions, but the bus was delayed because of the weather and when
 That's Murphy's law, isn't it. What was it said "If anthing can go wrong, it will" Well, we still get twenty minutes to gather our wits together  
   
 gather our wits 冷静一下  
+  
+preserve: keep something in good condition  
+preserve one's eyesight / food  
+
+conserve: 保持数量不减少
+conserve wildlife / resources  
+  
+reserve: for future use  
+Reserve your energy for the climb tomorrow.  
+I reserve the right to disagree.  
+reserve a table for 2.  
+
+The old building is in a good state of preservation except for the wooden floors.  
+  
+precious   
+nervous  
+anxious  
+  
+surprise:  I was surprised.  
+astonish:  something unbelievable or incridible  
+He was astonished at what he found. A man was lying in the box on top of a pile of woolen goods.  
+  
+amaze: 迷惑不解  
+astound: 惊呆了  
+
+The police were astounded when Mrs. Ramsay told them what she had done.  
+  
+turn out to be: 出乎意料  
+prove (to be)  
+Eric's girlfriend turned out to be his half-sister.  
+  
+modern-looking  
+an interesting-looking carved dagger.  
+  
+hard-working  
+easy-going  
+
+The tower stands 15 meters (high).  
+  
+weigh  
+The boy weighs 50 kilos.  
+  
+measure  
+The carpet measures 5 meters long / 3 meters across.  
+  
+rug  装饰用小地毯  
+  
+Her hands rested on her hips.  
+Her face rested on her hands.  
+  
+despite  
+in spite of  
+notwithstanding   
+  
+though  
+although  
+even though  
+while  
+  
+in spite of the fact that ...  
+despite the fact that ...  
+Despite the fact that the bottle is tinted a delicate shade of green, an observant visitor would soon notice that it is filled with what looks like a thick, grayish substance.  
