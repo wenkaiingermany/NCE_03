@@ -163,4 +163,95 @@ a great amount / deal of ...
   
 beneath / underneath -> on  
 under -> over
-below -> above
+below -> above  
+  
+The temple which the archaeologists exploered was used as a place of worship from the fifteenth century B.C. until Roman times.  
+  
+be used as...  
+The wooden box is used as a seat.  
+  
+act / serve / function as ...  
+The wooden box acts / serves / functions as a seat.  
+She serves as impressive reminder of the great ships of the past.  
+  
+B.C. (BC): Before Christ  
+A.D. (AD): Anno Domini  
+  
+in modern / recent / ancient / prehistoric times  
+  
+in times of ...  
+in times of peace / war  
+In times of peace, when business was bad, Hawkwood and his men would march into a city-state...  
+  
+age  
+the Ice Age  
+the Stone Age  
+the modern age
+the computer age  
+  
+era  
+the steam-engine era  
+mark the end of an era.  
+His death marked the end of an era.  
+mark the beginning of a new era.  
+It marked the end of the great tradition of ships with sails and the beginning of a new era.  
+The foundation of the People's Republic of China marked the beginning of a new ear.  
+  
+t + j = tʃ  
+don't you   won't you   last year   situation  
+  
+d + j = dʒ  
+did you     would you   graduate    credulous  
+  
+s + j = ʃ  
+this year   Bess you.   I promise you.  
+  
+z + j = ʒ  
+May I use your book?  
+How's your father?  
+  
+represent   stand for     
+Honey, this gold ring stands for / represents my love for you.  
+  
+on behalf of sb. / on one's behalf  
+On behalf of the entire company, I would like to thank you for all your work.  
+Unfortunately, George cannot be with us today so I am pleased to accept this award on his behalf.  
+  
+date from ...  
+data back to ...  
+can be traced back to ...  
+The properity of the Silk Road dates from / dates back to / can be traced back to the distant Han Dynasty.  
+  
+sth. happen to sb. 某事发生在了某人身上  
+A car accident happened to him.  
+  
+
+happen to do 碰巧  
+it happen that...  
+We happened to take the same train.  
+It happened that we took the same train.  
+  
+chance to do  
+it chance that ...
+We chaned to take the same train. 
+It chanced that we took the same train.  
+  
+by chance   by accident    accidentally
+We took the same train by chance / by accident / accidentally.  
+  
+as it happen  
+As it happened, we took the same train.  
+  
+I don't imagine you would have time to help me with this.  
+As it happens, I would.  
+  
+as luck would have it 碰巧  
+As luck would have it, we took the same train.  
+  
+You do look cold. What happened?  
+I've been standing outside in Arctic temperatures for over an hour waiting for a bus.  
+Over an hour, but i thought your apartment was only a ten-minute bus ride to campus.  
+Under normal conditions, but the bus was delayed because of the weather and when I stepped into a drugstore to call home for a ride, the bus went by. As luck would have it, there was no one at home, so I had to wait another forty five minuts for the next bus.  
+That's Murphy's law, isn't it. What was it said "If anthing can go wrong, it will" Well, we still get twenty minutes to gather our wits together  
+  
+gather our wits 冷静一下  
