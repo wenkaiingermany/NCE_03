@@ -115,6 +115,38 @@ despite the fact that...
   
 Despite the fact that the bottle is tinted a delicate shade of green, an observant visitor would soon notice that it is filled with what looks like a thick, grayish substance.  
   
-Giant Pandas are frequently referred to as "living fossil" for the simple reason that they have lived on earth for over 200 million years. 
-  
+Giant Pandas are frequently referred to as "living fossil" for the simple reason that they have lived on earth for over 200 million years.  
 
+Such is human nature, that a great many people are often willing to sacrifice higher pay for the privilege of becoming white-collar workers.  
+  
+nature n. 本性，天性  
+Excuse me, nature calls.  
+He is kind by nature.  
+It is human nature that...  
+  
+Such is human nature that we all love to get something for nothing.  
+Such is human nature that we don't treasure what we have until we lose it.  
+
+Human nature is such that a great many people...  
+The conditions of society are such that skills have to be paid for in the same way that goods are paid for at a shop. -> Such are the conditions of society that ...  
+  
+be willing to do  
+I shook my head and held up five fingers indicating that I was willing to pay 5 Pound.  
+  
+be ready to do  
+If your order is large enough we are ready to reduce our prices by 5%.  
+  
+be prepared to do  
+Why people are prepared to tolerate a four-hour journey each day for the dubious privilege of living in the country is beyound me.  
+  
+for the privilege of...  
+  
+### This can give rise to curious situations, as it did in the case of Alfred Bloggs who worked as a dustman for the Ellesmere Corporation.  
+  
+give rise to sth. 导致......  
+The president's absence gave rise to speculations about his health.  
+  
+I work as an English teacher for New Oriental School.  
+观点 + 例证  
+......(观点), as it did / does in the case of ... who ...  
+Stress can give rise to mental diseases, as it did in case of Mike Johnson who worked as an engineer for General Motors.  
