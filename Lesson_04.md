@@ -150,3 +150,36 @@ I work as an English teacher for New Oriental School.
 观点 + 例证  
 ......(观点), as it did / does in the case of ... who ...  
 Stress can give rise to mental diseases, as it did in case of Mike Johnson who worked as an engineer for General Motors.  
+
+get married  
+marry sb.  
+be married to sb.  
+The girl was married to me.  
+The girl was engaged to me.  
+  
+be (dressed) in ...  
+He was (dressed) in a smart black suit.  
+  
+sb. wear sth.  
+He left home wearing a smart black suit.  
+  
+--I'm taking John to that fancy new restaurant tonight.  
+--You can't go like that. You'd better change.  
+  
+change (out of) (into ...)  
+You'd better change out of the red jacket into a blue one.  
+  
+spend ... on sth. / (in) doing  
+I spent a lot of money on food.  
+I spent a lot of time on homework.  
+I spent a lot of time (in) learning English.  
+I spent my summer vacation in Hainan Province.  
+I treasured every minute I spent with your family.  
+  
+    doing              being done  
+having done         having been done  
+After gazing at the display for several minutes, Mr. Taylor went back into his shop.  
+For days after setting out, while the Titanic was sailing across the icy waters of the North Altantic, a huge iceberg was suddenly spotted by a look-out.  
+Ashamed of having acted so rashly, Dimitri apologized to Aleko for having accused him.  
+Pretending to speak seriously, one of the workmen asked if he might make a telephone call before being taken to the station.  
+After having been wounded towards the end of the war, he had been sent to hospital and was separated from his unit.  
