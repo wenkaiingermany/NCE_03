@@ -183,3 +183,32 @@ For days after setting out, while the Titanic was sailing across the icy waters 
 Ashamed of having acted so rashly, Dimitri apologized to Aleko for having accused him.  
 Pretending to speak seriously, one of the workmen asked if he might make a telephone call before being taken to the station.  
 After having been wounded towards the end of the war, he had been sent to hospital and was separated from his unit.  
+  
+fellow dustmen / actors / students / citizens / Chineses / Americans ...  
+The gaoler looked on eagerly, anxious to see if his fellow actor had at last learnt his lines.  
+In so far as any inquiry is a secret one, it naturally limits all those engaged in carrying it out from effective contact with their fellow scientists either in other countries or in universities, or even, often enough, in other departments of the same firm.  
+We would lay less stress on 'facts and figures' and more on a good memory, on applied psychology, and on the capacity of a man to get along with his fellow citizens.  
+And so, my fellow Americans, ask not what your country can do for you; as what you can do for your country.  
+  
+workmate    colleague   associate  
+One night, the gaoler decided to play a joke on his colleague to find out if, after so many performances, he had managed to learn the contents of the letter by heart.  
+  
+Alf's wife has never discovered that she married a dustman and she never will, for Alf has just found another job.  
+I was, am and will be your friend.  
+  
+will be doing  
+Professor Wang will be taking charge of our department next Monday.  
+  
+He will be earning only half as much as he used to, but he feels that his rise in status is well worth the loss of money.  
+  
+A is ... times as ... as B  
+A is ... times the amount (the number, the size, the length, the width/breadth, the height, the value, the price ...) of B  
+A is ... time 比较级 than B  
+His salary is three times as much as mine.  
+His salary is three times the amount of mine.  
+His salary is twice more than mine.  
+  
+be worth sth. / doing...  
+be worthy of sth. / to do / to be done.  
+The matter is worth consideration / considering. 
+The matter is worthy of consoderation / to be considered. 
