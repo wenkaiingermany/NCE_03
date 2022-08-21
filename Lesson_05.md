@@ -96,3 +96,73 @@ The two police officers have been suspended until an enquiry is carried out.
   
 depose  
 King Charles I was deposed from the English throne in 1646.  
+
+offer sb. sth.  
+offer sth. to sb.  
+They offered him a very good job, but he turnedn it down.  
+The drama school offers places to students who can show talent.  
+
+facts and statistics  
+fruit and vegetables  
+fur and feather / birds and beasts  
+bed and board / food and shelter  
+food, shelter, clothing and transportation  
+  
+Editors of newspapers and maganizes often go to extremes to provide their readers with unimportant facts and statistics.  
+  
+Films, videos, CDs and CO-ROMs are just some of the bewildering amount of information they will have.  
+  
+Some websites often go to extremes to provide their visitors with a bewildering amount of information.  
+  
+instruct sb. in sth.  
+I instruct a class in history.  instructor  
+  
+instruct / direct sb. to do  
+I have been instructed by the company to offer you a refund.  
+The judge directed the defendant to remain silent.  
+  
+Last year a journalist had been instructed by a well-known magazine to write and article on the president's palace in a new African republic.  
+Some time ago, an interesting was made by archaeologist on the Aegean island of Kea.  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Atlantic, a hug iceberg was suddenly spotted by a look-out.  
+A radio massage from the mainland had been received by the ship's captain instructing him to give up the search.  
+  
+article on / about sth. (by sb.)  
+an article on / about educatin by Mr. Smith.  
+  
+The card arrived on my birthday.  
+A letter came for you this morning.  
+When reports came into London Zoo that a wild puma had been spotted forty-five miles south of London, they were not taken seriously.  
+When the letter came / arrived, Jane read the first sentence and the cried.  
+  
+The article began; 'Hundreds of steps lead to the high wall which surrounds the president's palace'.  
+  
+dozens of / scores of / hundreds of / thousands of / millions of + 复数名词  
+  
+tens of thousands of / hundreds of thousands of + 复数名词  
+thousands upon thousands of + 复数名词  
+  
+lead to ...  
+All roads lead to Rome.  
+The path led to a tiny village perched on the steep sides of a mountain.  
+This led to yet another angry argument.  
+  
+surround  
+Needless to say our house if now surrounded by a jungle.  
+Looking up I saw that we were surrounded by children in rags who were looking at us silently as we ate.  
+  
+surrounding  
+Winter was coming on and the hills threatened the surrounding willages with destruction, for heavy rain would not only wash away the soil but would cause serious floods as well.  
+  
+The editor at once sent the journalist a fax instructing him to find out the exact number of steps and the height of the wall.  
+  
+send sb. a fax / a letter / an email / a card.  
+get / receive a fax / a letter / an email / a card from ...  
+  
+find out: get information  
+She wanted to find out whether it would be comfortable to wear.  
+One night, the gaoler decided to play a joke on his colleague to find out if, after so many performances, he had managed to learn the contents of the letter by heart.  
+  
+find
+He could not find his fifty pence piece anywhere, and what is more, he could not get his arm out.  
+
+The manager at once sent his secretary an email instructing her to find out the number of the people who will attend the meeting.   
