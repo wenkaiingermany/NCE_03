@@ -165,4 +165,67 @@ One night, the gaoler decided to play a joke on his colleague to find out if, af
 find
 He could not find his fifty pence piece anywhere, and what is more, he could not get his arm out.  
 
-The manager at once sent his secretary an email instructing her to find out the number of the people who will attend the meeting.   
+The manager at once sent his secretary an email instructing her to find out the number of the people who will attend the meeting.  
+  
+set out: to start a journey, especially a long journey. 
+Both these ships set out from Shanghai on June 18th, 1872 on an exciting race to England.  
+  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Atlantic, a huge iceberg was suddenly spotted by a look-out.  
+  
+set out to do sth: begin a job, task, etc with a particular aim or goal.  
+  
+Dimitri at once set out to find the thief.  
+  
+True eccentrics never deliberately set out to draw attention to themselves.  
+  
+I went on an excursion recently, but my trip took me longer than I expected.  
+  
+Even if you travel in ideal weather, sea journeys take a long time.  
+  
+It took me over half an hour to get rid of him.  
+  
+I took just ten minutes to solve that problem.  
+  
+He always takes so long to eat his breakfast.  
+  
+spend ... on sth. / (in) doing sth.  
+  
+I argued that if I spent less time exhausting myself at exercises in the morning I would keep my mind fresh for reading when I got home from work.  
+  
+One, to my certain knowledge, spent nine months on a novel about Kashmir, then reset the whole thing in the Scottish Highlands.  
+  
+The journalist immediately set out to obtain these important facts, but he took a long time to send them.  
+  
+The secretary immediately set out to verify these important facts, but she took a long time to finish it.  
+  
+meanwhile: adv. 与此同时  
+at the same time  
+(in the) meantime  
+I continued working. Meantime, he went out shopping.  
+It took the police nearly an hour to get the traffic on the move again. In the meantime, the lorry-driver had to sweep up hundreds of broken bottles.  
+  
+one more ... = another ...  
+two more ... = another two ...  
+In another two weeks it'll be finished.  
+= in two more weeks it'll be finished.  
+  
+He sent yet another fax informing the journalist that if he did not reply soon he would be fired.  
+  
+yet / still one more / another / bigger ...  
+This let to yet another angry argument.  
+yet / still one more example  
+He's given us yet / still more work to do.  
+Inflation had risen ro a yet / still higher level.  
+
+They said the train won't arrive until nine.  
+Well, what that boils down to is yet another delay in our schedule.  
+They are going to be late again.  
+
+inform sb. of sth.  
+inform sb. that ...  
+
+in that ... 因为 ...  
+but / except that ... 要不是除了什么情况之外; 要不是...的话  
+
+The kidnapper sent yet another anonymous letter informing the old lady that if she called the police, she would never see her son again.  
+  
