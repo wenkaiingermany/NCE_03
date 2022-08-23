@@ -229,3 +229,48 @@ but / except that ... 要不是除了什么情况之外; 要不是...的话
 
 The kidnapper sent yet another anonymous letter informing the old lady that if she called the police, she would never see her son again.  
   
+When the journalist again failed to reply, the editor reluctantly published the article as is had originally been written.  
+  
+reluctantly = unwillingly  
+
+When we again failed to get visas, we reluctantly went on a domestic journey as it had originally been planned.  
+  
+Not only had the poor man been arrested, but he had been sent to prison as well.  
+  
+not only ... but also ...  
+not only ... but ...
+not only ... but ... as well  
+This hobby educates one not only in the chosen subject, but also in general matters which have some bearing on it.  
+At that time, however, she was not only the largest ship that had ever been built, but was regarded as unsinkable, for she had sixteen water-tight compartments.  
+  
+部分倒装  
+只把助动词，be动词(之前没有其他助动词)或情态动词置于主语之前  
+1. 否定词位于句首 not only, not until, neither, nor, never, hardly, barely, scarcely, few, little, seldom, under no circumstances, in no way ...  
+Nor is the city without its moments of beauty.  
+Neither was I surprised when the train stopped at Widley, a tiny station a few miles along the line.  
+Never have I seen such a good movie.  
+Not until yesterday did little John change his mind.  
+Under no circumstances should you lend Paul any money.  
+2. only + 状语 位于句首  
+Only then did he realize that he was mistaken.  
+Only by working hard can we succeed in doing anything.  
+Only after a baby seal is pushed into the sea by its mother will it learn how to swim.  
+Only when he saw that the man was actually telephoning the police did he realize that they had all been the victims of a hoax.  
+3. such, so, well, often, many a time 等表示程度，频率的此位于句首.  
+Such is human nature, that a great many people are often willing to sacrifce higher pay for the privilege of becoming white-collar workers.  
+So great is our passion for doing things for ourselves, that we are becoming increasingly less dependent on specialized labour.  
+Well did I know him and well did he know me.  
+often did it snow there.  
+Many a time has he given me good advice.  
+Not only did several people complain of 'cat-like noises' at night, but a businessman on a fishing trip saw the puma up a tree as well.  
+  
+However, he had at last been allowed to send a fax in which he informed the editor that he had been arrested while counting the 1,84 steps [leading to the fifteen-foot wall (which surrounded the president's palace)]  
+主语从句的省略  
+主语从句如果满足以下两个条件:  
+1. 主语从句的主语与主句主语一致  
+2. 主语从句的谓语包含be动词  
+则可同时省略主语从句的主语和其后的be动词  
+Metals expand when they are heated and contract when they are cooled.  
+Metals expand when heated and contract when cooled.  
+Prancis Preston Blair Jr., although he was born in Kentucky, lived and practiced in Missouri.  
+Francis Preston Blair Jr., although born in Kentucky, lived and practiced in Missouri.  
