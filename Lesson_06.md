@@ -52,3 +52,73 @@ cast
 crew  
 faculty  
 audience  
+  
+narrative 记叙文  
+1. when, where, who, why, what and result  
+2. 目的明确，线索清晰，描写生动，详略得当，局势多变  
+  
+expensive shops / hotels  
+Mary is an expensive girl. She eats like a horse.  
+a fancy / luxury car / hotel  
+  
+arcade 拱廊街  
+17-Arch Bridge  
+Arch of Triumph  
+  
+around ...  
+close to ...  
+in the neighborhood of ...  
+in the vicinity of ...   
+off ...  
+I rent an apartment off campus.  
+  
+Will you be living in the dormitory this year?  
+Not if I can help it. I've been thinking of renting an apartment off campus with some friends of mine.  
+  
+on campus  
+  
+Piccadilly  
+  
+The expensive China World Shopping Mall on / at the JianGuomenWai Avenue in Chaoyang District was just opening.  
+  
+empty  
+an empty truck  
+empty streets  
+  
+the jeweler's  
+the grocer's  
+the tailor's  
+the baker's  
+the butcher's  
+the barber's  
+the stationer's  
+the chemist's  
+  
+we spent the weekend at Mr. Green's (house).  
+He graduated from St. John's (University)  
+Joe lives near St. Paul's (Cathedral) in London  
+  
+I admire her courage.  
+I am admiring her beauty.  
+gaze at ...  
+After gazing at the display for several minutes, Mr. Taylor went back into his shop.  
+  
+an assistant manager  
+(shop) assistant / clerk  
+  
+had been doing  过去完成进行时  
+持续性的动作一直做到过去的某时，而且有可能继续下去  
+Bleriot had been making planes since 1905 and this was his latest model.  
+The small ship, Elkor, which had been searching the Barents Sea for weeks, was on its way home.  
+  
+only just adv. not long ago / before  
+We've only just arrived.  
+I've only just moved to London.  
+  
+We arranged the chairs in a semicircle.  
+His books are neatly arranged in alphabetical order.  
+  
+He gazed at the belle.  
+He stared at the belle.  
+He gaped at he belle.  
+The belle glared at him.  
