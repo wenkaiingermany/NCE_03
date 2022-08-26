@@ -122,3 +122,30 @@ He gazed at the belle.
 He stared at the belle.  
 He gaped at he belle.  
 The belle glared at him.  
+  
+The silence was suddenly broken when a large car, with its headlights (being) on and its horn blaring, roared down the arcade. 
+  
+独立主格  
+(with) + n. + 非谓语(doing / done / to do, 其中being常省略)，在句中常作状语或定语  
+One man stayed at the wheel while two others with black stockings (being) over their faces jumped out and smashed the window of the shop with iron bars.  
+..., and at this point, according to my father, I should be looking at farms and cottages in a valley, with the spire of the church of our village showing in the far distance.  
+Collecting, by occupying spare time so constructively, makes a person contented, with no time (being) for boredom.  
+It is possible that upon such an occasion a battle ensured, with the sharks being driven away or killed.  
+Apart from an interesting-looking carved dagger, the box full of crockery, much of it broken.  
+In the nineteenth century, a novelist would bring his story to a conclusion by presenting his readers with a series of coincidences--most of them wildly improbable.  
+He came in and carried a book.  
+He came in, carrying a book.  
+He came in and a book was in his hand.  
+He came in (with) a book (being) in his band.  
+  
+The roar of airplane engines announced a coming air raid.  
+roar  exclamation  whistle scream  
+The silence was suddenly broken when a tough guy, with his eyes glaring and a gun in his hand broke into the bank.  
+  
+come to a stop / halt = stop / halt  
+come to an end = end  
+come to a close = close  
+come to a dicision = decide  
+come to a conclusion = conclude  
+
+Bruce charged at it, but in the middle, the car came to a grinding halt.  
