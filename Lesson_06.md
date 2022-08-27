@@ -139,7 +139,7 @@ He came in and a book was in his hand.
 He came in (with) a book (being) in his band.  
   
 The roar of airplane engines announced a coming air raid.  
-roar  exclamation  whistle scream  
+roar    exclamation     whistle     scream  
 The silence was suddenly broken when a tough guy, with his eyes glaring and a gun in his hand broke into the bank.  
   
 come to a stop / halt = stop / halt  
@@ -149,3 +149,55 @@ come to a dicision = decide
 come to a conclusion = conclude  
 
 Bruce charged at it, but in the middle, the car came to a grinding halt.  
+  
+One man stayed at the wheel while two others with black stocking over their faces jumped out and smashed the window of the shop with iron bars.  
+He must be over 60, while / whereas his wife looks about 30.  
+  
+While she is a likable girl, she can be extremly difficult to work with.  
+While they enjoy the comfort and banal luxury of their dwelling, they do not realize that they are deprived of the necessities of life.  
+While Washington and Jefferson privately expressed distaste for slavery, they also understood that it was part of the political and economic bedrock of the country they heloed to create.  
+  
+While this was going on, Mr.Taylor was upstairs.  
+
+Many of the toursts on board had begun bargaining with the tradesmen, ...  
+It began to rain.  
+During the journey, the boat began to sink.  
+  
+The boy went running to meet him.  
+The girl came bouncing to tell me the news.  
+  
+be busy doing sth.  
+be busy with sth.  
+They are busy preparing for the wedding.  
+They are busy with preparations for the wedding.  
+  
+be too busy doing sth. to do sth.  
+He was too busy working to notice us come in.  
+  
+help oneself to sth.  
+Help yourself to a beer.  
+They helped themselves to the farmer's apples.  
+  
+The birds covered the distance in three minutes.  
+under / within three minutes.  
+  
+scramble  
+As the burning plane landed, the terrified passengers scrambled for the door.  
+  
+at a fantastic speed.  
+at / with great speed  
+at a speed of 60 mph  
+  
+Just at it was leavint, Mr. Taylor rushed out and ran after it throwing ashtrays and vases, but it was impossible to stop the thieves.  
+  
+run after = chase  
+Instead of studying he wastes his time chasing girls.  
+pursue  
+The thief ran across the field, with an officer pursuing him.  
+thousands of pounds worth of 
+one billion dollars worth of merchandise.  
+fifty pence worth of trouble  
+  
+Well, how was the date?  
+Well I'm alone and I just bought fifteen dollars worth of candy bars, what do you think?  
+I just bought 50 yuan worth of groceries.  
