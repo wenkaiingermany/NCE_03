@@ -64,7 +64,7 @@ A car accident happened to him.
 A good idea occurred to me.  
   
 bank note / banknote / note 纸钞  bill  
-a fake /counterfeit $20 bill  
+a fake / counterfeit $20 bill  
 Bill / William  
   
 coin  
