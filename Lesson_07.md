@@ -151,3 +151,69 @@ It seems that dogs love to chew up money. -> Dogs, it seems, love to chew up mon
 You may wonder why spiders are our friends -> Why, you may wonder, should 怎么会 spiders be our friends.  
 
 Many of us believe that economic development is of paramount importance to China. -> Economic development, many of us believe, is of paramount impartance to China.  
+  
+concern ... = be about ...  
+A recent case is about Jane Butlin ...    
+To whom it may concern, ...  
+One case concerns an eleven-year-old schoolgirl, Vera Petrova, who has normal vision but who can also perceive things with different parts of her skin, and through solid walls.  
+  
+be concerned with ... 
+The book concerns music. 
+The book is concerned with music.  
+a book concerning music  
+a book concerned with music  
+  
+run: be in charge of (sth); manage  
+run a hotel / shop / language school  
+John manages a successful furniture business.  
+John is in charge of a successful furniture business.  
+  
+### John had a very good day and put his wallet containing $3.000 into the microwave oven for safekeeping.  
+  
+go fishing / hunting / camping / bowling / sight-seeing / mountain-hiking  
+  
+### When they got home, Jane cooked their dinner in the microwave oven and without realizing it, cooked her fiance's wallet as well.  
+  
+... without knowing it, ...  
+... without being aware of it ...  
+  
+dismay: both shocked and discouraged  
+  
+turn to / into ... = change into ... = become ...  
+The caterpillar eventrually turns to a beautiful butterly.  
+The teacher turned writer.  
+The has turned traitor.  
+  
+imagine one's ... when ...  
+Imagine his dismay when he found he took the wrong train.  
+  
+continuative clause 接续行分句  
+### John went to see his bank manager who sent the remains of wallet and the money to the special department of the Bank of England in Newcastle: the Multilated Ladies!  
+  
+He violently beat the boy who later died from his injuries.  
+We can read of things that happened 5,000 years in the Near East, where people first learned to write. (because people first learned to write there)  
+  
+Don't sit on the chair because it has a broken leg.  
+Don't sit on the chair which has a broken leg.  
+  
+I have to be very careful not to offend the manager because he could give me the sack at any time.  
+I have to be very careful not to offend the manager who could give me the sack at any time.  
+  
+give sb. the sack  
+  
+History books never mention those people although they really helped civilization forward.  
+History books never mention those people who really helped civilization forward.  
+  
+as / so long as ...  
+provided / providing (that) ...  
+on condition (that) ...  
+You'll be quite safe as long as you follow my instructions.  
+He can come with us, provided / providing (that) he pays for his own meals.  
+I'll lend you the money on condition (that) you pay it back within three weeks.  
+  
+only if ...  
+She will go only if he goes.  
+Only if he goes will she go.  
+  
+### 'So long as there's something to identify, we will give people their money back,' said a spokeswoman for the Bank.  'Last year, we paid $1.5m on 21,000 claims. 
+This can give rise to curious situations, as it did in the case of Alfred Bloggs who worked as a dustman for the Ellesmere Corporation.  
