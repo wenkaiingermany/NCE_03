@@ -86,13 +86,13 @@ The 'Antoinette' floated on the water until Latham was picked up by a ship.
   
 salvage ... from ...  
 He tried desperately to salvage belongings from the burning house.  
-The captain of The Elkor ordered his men to salvage as much as possible from the wreck.  
+The captain of the Elkor ordered his men to salvage as much as possible from the wreck.  
   
 savior / saviour  
 a knight in shining armor.  
 I don't know who you are, Nick. You just magically show up like some knight in shining armor, ready to save the day...  
   
-People who live in Britain needn't despair when they make mistakes like this (and a lot of people do)!  绝望
+### People who live in Britain needn't despair when they make mistakes like this (and a lot of people do)!  绝望
   
 nasal explosion  鼻腔爆破  
 [t] / [d] + [n]  
