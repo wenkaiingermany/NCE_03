@@ -131,3 +131,48 @@ I made an attempt to apologize, but Brian wouldn't even talk to me.
 Over a year passed before the first attempt was made.  
 It seems that man was making a real effort to understand the seasons 20,000 years earlier than has been supposed.  
 ... if, in a word, beauty means something, yet we must not seek to interpret the meaning.  
+  
+During the summer months, the monastery is very busy, for it is visited by thousands of people who cross the Pass in cars.  
+  
+in cars = by car  
+You can go to the airport in my car.  
+We crossed the river in a boat.  
+  
+As there are so many people about, the dogs have to be ...  
+(With) so many people (being) about, the dogs have to be ...  
+  
+keep: confine  
+He was kept / confined in prison.  
+You shouldn't keep / confine the bird in a cage.  
+  
+life at the monastery  
+life on a desert island  
+life in the army  
+life on campus  
+  
+quite adv. completely 完全，截然  
+  
+The other side of the picture is quite the opposite.  
+He used to sleep during the day and work at night, quite unaware of the fact that he had become the ghost of Endley.  
+  
+The temperature falls to -30°    
+Little by little the eleven minutes fell to zero.  
+  
+plunge  
+The order to abandon ship was given and hundreds of people plunged into the icy water.  
+The temperature plunges to -30° degrees 
+
+dive to...  
+
+in'crease to ...  
+rise to ...  
+rocket to ...  
+soar to ...  
+
+The temperature drops by 10°  
+  
+minus 30 degrees  
+30 degrees blow zero  
+  
+Centigrade / Celsius  
+Fahrenheit 
