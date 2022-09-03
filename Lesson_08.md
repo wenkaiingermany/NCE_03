@@ -175,4 +175,64 @@ minus 30 degrees
 30 degrees blow zero  
   
 Centigrade / Celsius  
-Fahrenheit 
+Fahrenheit  
+  
+### prefer A to B  
+I prefer mutton to beef.  
+  
+### prefer doing to doing  
+I prefer standing to sitting down.  
+  
+Didn't Marian go shopping with you yesterday?  
+Even if she hadn't had a lot of studying, she would have preferred staying home to going shopping.  
+What does the man imply about Marian?  
+  
+### prefer A rather than B  
+I prefer mutton rather than beef.  
+  
+### prefer to do rather than do  
+I prefer to stand rather than sit down.  
+  
+### would rather do than do  
+I'd rather stand than sit down.  
+... people would rather pay large sums of money than have their life work destroyed by gangsters.  
+  
+It says here the next train is due in at 6:30  
+I know, but I don't know whether I can make that one. I'd rather call you from the station than have you waiting around for an hour.  
+  
+permit sb. to do  
+allow sb. to do  
+give sb. permission to do  
+  
+wander: to walk aimlessly  
+roam  
+  
+He is one of our restaurant's regulars.  
+What'll it be?  
+The usual, please.  
+  
+regular visitors to the monastery  
+  
+a party of tourists  
+a search party  
+a rescue party  
+group / bunch / crowd / band  
+  
+Six hundred years ago, Sir John Hawkwood arrived in Italy with a band of soldiers and settled near Florence.  
+  
+on Christmas Day  
+on Easter Day  
+  
+on / at weekends  
+  
+receive a warm welcome  
+..., are always warmly welcomed ...  
+Let's all extend a warm welcome to our visitors.  
+  
+receive + n. 
+No creature has received more praise and abuse than the common garden snail.  
+receive insults  
+receive support  
+receive adequate treatment  
+receive good education  
+This exhibition received a great deal of attention in the press,...  
