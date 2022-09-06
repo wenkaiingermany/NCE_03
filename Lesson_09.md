@@ -156,3 +156,79 @@ I am especially proud of it, not only because it has survived several severe win
 ... is based / founded on fact.  
 ... rests on fact.  
 ... is supported by fact.  
+  
+### Recently the New York Animal Medical Centre made a study of 132 cats over a period of five months.  
+  
+make a study of ... = study ...  
+make a discovery of ... = discover ...  
+  
+make a study of human nature  
+make a study of human nature carefully -> make a careful study human nature  
+..., advertisers have made a close study of human nature.  
+  
+### All these cats had one experience in common: they had fallen off high  building, yet only eight of them died from shock of injuries.  
+  
+have sth. in common  
+... because people's descriptions of the puma had a lot in common.  
+These two species have certain features in commen.  
+  
+share sth.  
+We share an interest in history.  
+These two species share certain features.  
+All these cats shared one experience:...  
+  
+fall off sth.  
+fall from sth.  
+fall sth.  
+  
+die from ...  外因  
+die from shock of injuries / a wound / an accident  
+die of ...  内因  
+die of a disease / hunger / grief  
+  
+### As there were strange marks on the X-ray plates taken of the mummy, docters have been trying to find out whether the woman died of a rare disease.  
+It is one of the most unpleasant discoveries which we all make that we must decline in this way, that if we escape wars, accidents and disease we shall eventually 'die of old age', and that this happens at a rate which differs little from person to person, so that there are heavy odds in favour of our dying between the ages of sixty-five and eighty.  
+  
+### Of course, New York is the ideal for such an interesting study, because there is shortage of tall buildings.  
+  
+there is a shortage of ...  
+There is a shortage of food in the refugee camps.  
+There is a shortage of nurses and docters in this area.  
+..., because there are plenty of tall buildings.  
+  
+### There are plenty of high-rise windowsills to fall from. One cat, Sabrina, fell 32 storeys, yet only suffered from a broken tooth.  
+  
+suffer (from) sth  
+One taxi driver, Mike, was involved in serious car accident, yet only suffered from two broken ribs.  
+  
+### 'Cats behave like well-trained paratroopers,' a docter said.  
+### It seems that the further cats fall, the less they are likely to injure themselves.  
+  
+far -> farther / further -> farthest / furthest  
+further development / investigation  
+  
+The harder they worked the hungrier they became.  
+They became (the) hungrier the harder they worked.  
+  
+### A telescope would have to be as far away as the planet Jupiter to look for life in outer space, because the dust becomes thinner the further we travel towards the outer edges of our own solar system.  
+  
+The younger the child is, the more is the child's need of sleep. ->  
+The younger the child, the more the child's need of sleep.  
+
+The further off this solid obstruction, the longer time will elapse for the return of the echo. 
+
+### In a long drop, they reach speeds of 60 miles an hour and mor. At high speeds, falling cats have time to relax. They stretch out their legs like flying squirrels.  
+
+at / with great speed  
+at a speed of 60 mph  
+  
+The raid was all over in three minutes, for the men scrambled back into the car and it moved off at a fantastic speed.  
+Though the new rudder was fitted at tremendous speed, it was impossible for the Cutty Sark to win.  
+  
+..., you can enjoy the extraordinary sight of unbroken cloud plains that stretch out for miles before you, ...  
+You can stretch yours legs on the spacious decks, ...  
+  
+stretch one's legs  久坐后活动活动  
+  
+### This increase their air-resistance and reduces the shock of impact when they hit the ground.  
+
