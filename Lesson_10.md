@@ -111,7 +111,43 @@ Gone are the days when my heart was young and gay.
 1. 否定词谓语句首  
 2. only + 状语 位于句首  
 3. such，so，well，often，many a time 等表示程度频率的词位于句首  
+  
+### Even by modern standards, the 46,000 ton Titannic was a colossal ship.  
 
-
-
-
+by: according to  
+What time is it by your watch?  
+By my watch it's 4 o'clock.  
+safety standards  
+moral standards  
+living standards  
+  
+criterion (pl.) criteria  
+admission criteria  
+the criteria we use to select candidates.  
+  
+### At that time, however, she was not only the largest ship that had ever been built, but was regarded as unsinkable, for she had sixteen watertight compartments.  
+  
+not only ... but also ...  
+not only ... but ...  
+not only ... but ... as well.  
+  
+regard ... as ...  
+形容词作介词宾语时可视为其前省略了动名词being.  
+He regarded the situation as (being) serious.  
+His work is far from (being) satisfactory.  
+  
+### Even if two of these were flooded, she would still be able to float.  
+Even if you dislike ancient monuments, Warwich Castle is worth a visit.  
+Even though you dislike ancient monuments, Warwick Castle is worth a visit.  
+The villagers have told him that they will not accept the inn even if he gives it away.  
+Almost immediately he began to complain about the weather, for even though it was still summer, it rained continually and it was often bitterly cold.  
+Even if you travel in ideal weather, sea journeys take a long time.  
+I immediately embarked on an experiment which, even though it failed to get rid of the ants, kept me fascinated for twenty-four hours.  
+  
+### The tragic sinking of this great liner will always be remembered, for she went down on her first voyage with heavy loss of life.  
+  
+go down: sink  
+maiden voyage / flight / work  
+virgin land  
+  
+The tragic missing of the Malaysian airliner will always be remembered, for it mysteriously lost contact on its flight from Kuala Lumpur to Beijing with heavy loss of life.  
