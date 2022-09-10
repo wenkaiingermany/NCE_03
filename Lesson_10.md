@@ -151,3 +151,63 @@ maiden voyage / flight / work
 virgin land  
   
 The tragic missing of the Malaysian airliner will always be remembered, for it mysteriously lost contact on its flight from Kuala Lumpur to Beijing with heavy loss of life.  
+  
+### Four days after setting out, while the Titanic was sailing across the icy waters of the North Atlantic, a huge iceberg was suddenly spotted by a lookout.  
+Ten minutes after calling 911, a police car arrived on the spot.  
+  
+Pay prints were seen in a number of places and puma fur was found clinging the bushes.  
+  
+### After the alarm had been given, the great ship turned sharply to avoid a direct collision.  
+give an alarm / an order / a cry / a long sigh  
+The girl gave a charming smile.  
+  
+turn      veer      swerve    change course  
+Moments before crashing, the jet was seen veering sharply to the right.  
+The lorry swerved sharply to avoid the child.  
+As we bumped over the dusty track, we swerved to avoid large boulders.  
+The plane changed course to avoid the storm.  
+  
+collision n.  
+collide v.  
+During the rush hour one evening two cars collided and both drivers began to argue.  
+  
+### The Titanic turned just in time, narrowly missing the immense wall of ice which rose over 100 feet out of the water beside her.  
+  
+with no time to spare  
+Spare the rad and spoil the child.  
+We boarded the train with no time to spare.  
+The car turned just in time, narrowly missing the child.  
+I dodged just in time, narrowly missing the falling rock.  
+  
+The immense building rose before our eyes.  
+Above the surface of the water, the towers rise to a height of nearly 700 feet.  
+  
+### Suddenly, there was a slight trembling sound from below, and the captain went down to see what had happened.  
+  
+suddenly / all of a sudden / all at once  
+Seeing a cake flying through the air, a lorry-driver who was drawing up alongside the car, pulled up all of a sudden.  
+All at once, I noticed that my wife seemed to be filled with alarm.  
+  
+副词和介词短语都可以作介词的宾语  
+There is a fine view from here.  
+I heard them calling me from below.  
+They have just returned form abroad.  
+I took my watch from under the pillow.  
+He picked up the gun from behind the counter.  
+I live near here.  
+We didn't meet until after the show.  
+The weather has been fine except in the north.  
+The vicar went up into the clock tower to see what was going on.  
+  
+### The noise had been so faint that no one thought that the ship had been damaged.  
+  
+The noise had been too faint for anyone to think that the ship had been damaged.  
+  
+### Below the captain realized to his horror that the Titanic was sinking rapidly, for five of her sisteen watertight compartments had already been flooded!  
+  
+### The order to abandon ship was given and hundreds of people plunged into the icy water.  
+  
+plunge v. to move, fall, or be thrown suddely forwards or downwards.  
+Her car swerved and plunged off the cliff.  
+  
+### As there were not enough lifeboats for everybody, 1,500 lives were lost. 
