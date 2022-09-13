@@ -186,3 +186,98 @@ government officials
 corrupt officials  
 official corruption  
 official statistics  
+  
+### 'Have you anything to declare?' he asked, looking me in the eye.  
+  
+look sb in the eyes(s) / face  
+to look straight at sb without feelingembarrassed or ashamed  
+  
+Can you look me in the eye and tell me you're not lying?  
+I'll never be able to look her in the face again!  
+  
+### 'No,' I answered confidently.  
+confidently <-> with confidence  
+  
+### 'Would you mind unlocking this suitcase please?'  
+1. 请求对方做某事  
+would / do you mind doing  
+Would you mind waiting outside?  
+No, not at all. Not at all. Certainly not.  
+Of course not. No, that's quite all right.  
+Not at all, I'd be happy / glad to.  
+  
+2. 请求对方允许自己做某事  
+would / do you mind my / our doing ...  
+do you mind if ...  (真实语气: 一般现在时)  
+would you mind if ... (虚拟语气: 一般过去时)  
+Would you mind my smoking here?  
+Do you mind if I smoke here?  
+-- Would you mind if I smoked here?  
+-- Go ahead.
+-- I wish you wouldn't. You'd better not.  
+I'm sorry, but ...  
+I'm afraid this is a non-smoking office.  
+  
+### The Officer went through the case with great care.  
+He had spotted a tiny bottle at the bottom of my case and he pounced on it with delight (delightedly).  
+Then I added with a smile (=smilingly).  
+  
+His few material possessions make it possible for him to move from place to place with ease (=easily).  
+She faced the difficulty with calmness (calmly).  
+I looked at her with curiosity(curiously).  
+She spoke to me with tenderness(=tenderly).  
+I greeted Philip with enthusiasm (enthusiastically).  
+The gang picked their victims at random (randomly).  
+I met an old friend in town by accident (accidentally).  
+The negotiations were conducted in secret (=secretly).  
+It's unprofessional to criticize your colleagues in public (publicly).  
+  
+### All the things I had packed so carefully were soon in a dreadful mess.  
+things [pl.] personal belongings  
+The chest contained the personal belongings of a seaman, Alan Fielding.  
+  
+pack  
+Kelly packed her things before dinner.  
+He was still packing his suitcase when the taxi came.  
+  
+unpack  
+He told me to unpack my things and then come down to dinner.  
+I unpacked my bags as soon as I arrived.  
+  
+in a mess  
+in a / an dreadful / terrible / awful / appalling mess  
+Jem's house is always in an awful mess.  
+  
+in (a state of) disorder / chaos    
+Everything was in disorder, but nothing seemed to be missing.  
+The whole office was in a state of disorder.  
+  
+Without it, nothing could ever be brought to a conclusion; everything would be in a state of chaos.  
+  
+### I felt sure I would never be able to close the case again.  
+Still, I'm glad the bell is working again.  
+'It's working all right, but I'm afraid that at one o'clock it will strike thirteen times and there's nothing I can do about it.'  
+When a passing tanker rescued them five days later, both men were genuinely sorry that then had to leave.  
+  
+### Suddenly, I saw the Officer's face light up.  
+  
+light up if someone's face or eyes light up, they show pleasure, excitement etc.  
+  
+His eyes lit up with laughter.  
+Her face lit up with pleasure.  
+  
+### He had spotted a tiny bottle at the bottom of my case and he pounced on it with delight.  
+pounce (on sth)  
+The lion crouched ready to pounce.  
+The hawk pounced on its prey.  
+plunge (into sth)  
+The order to abandon ship was given and hundreds of people plunged into the icy water.  
+  
+charge (at sth)  
+Bruce charged at it, but in the middle, the car came to a grinding halt.  
+  
+delighted / gelightedly  
+delightful / delightfully  
+Robert was delighted to see me and equally pleased with my little gift.  
+Indeed they can have a delightful surprise when they find something usefull which they did not know they owned.  
+The old view of Galileo was delightfully uncomplicated.  
