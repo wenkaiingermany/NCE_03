@@ -281,3 +281,76 @@ delightful / delightfully
 Robert was delighted to see me and equally pleased with my little gift.  
 Indeed they can have a delightful surprise when they find something usefull which they did not know they owned.  
 The old view of Galileo was delightfully uncomplicated.  
+  
+### 'Perfume, eh?' he asked sarcastically / ironically with (heave) sarcasm / irony.  
+  
+### 'You should have declared that. Perfume is not exempt from import duty'.  
+  
+should / ought to have done.  
+He should have known that the police would never allow this sort of thing. A policeman approached Jimmy and tole him he ought to have gone along a side street as Jumbo was holding up the traffic.  
+  
+How I regretted the hours wasted in the woods and fields, the days when I had played and should have studied.  
+  
+be exempt from sth.  
+Children are exempt from the charges.  
+Currently, developing nations are exempt from certain restrictions on carbon emissions.  
+  
+import duty / customs duty / tariff  
+  
+These days, it is differences in national regulations, far more than tariffs, that put sand in the wheels of trade between rich countries.  
+  
+income / property / sales / inheritance tax  
+  
+### But it isn't perfume, I said, It's hair gel. Then I added with a smile, It's a strange mixture I make myself.  
+I have nothing to add to my earlier statement.  
+He added that a student had dressed up as a policeman and was playing all sorts of silly jokes on people.  
+  
+do sth with a smile / laugh / sneer / shock / sigh / start ...  
+'Oh, that,' he said with a smile as if he were talking about an old friend.  
+Looking round, I realized with a shock that I was the only passenger left on the bus.  
+'Oh, is it?' said the sheriff with a sneer. 'Well, I'm Brinksley Meers, and my other name if Gloria Gleam. Now you get out of here fast!'  
+One night, however, our vicar woke up with a start: the clock was striking the hours!
+She slowly sat down with a sigh and closed her eyes.  
+  
+oneself vs by oneself  
+oneself 强调"亲自"， 并非他人代劳  
+by oneself = alone  
+Do it yourself  
+I would not hear of the suggestion and said that I would fix it myself.  
+The are living by themselves.  
+One can't play tennis by oneself.  
+  
+### As i expected, he did not believe me.  定语从句  
+As I soon learnt, he was English himself!  
+Anywas, as Brian pointed out, it is the easiest thing in the world to give up smoking.  
+Things can go wrong on a big scale, as a number of people recently discovered in Parramatta, a suburb of Sydney.  
+  
+### try it, I said encouragingly.  
+give it a try.  
+give it a shot.  
+  
+### The Officer unscrewed the cap and put the bottle to his nostrils.  
+screw a bulb in  
+unscrew  
+She unscrewed the cap of her water bottle and gave him a drink.  
+  
+### He was greeted by an unpleasant smell which convinced him that I was telling the truth.  
+  
+be greeted by ... (of sights, sounds or smells)  
+I woke up and was greeted by bird song.  
+When she opened the door she was greeted by complete disorder.  
+  
+convince sb. of sth  
+convince sb. that ...  
+The experts were now fully convinced that the animal was a puma, but where had it come from?  
+  
+tell the truth  
+tell a lie / story / joke ...  
+  
+### A few minutes later, I was able to hurry away with precious chalk marks on my baggage.  
+She hurried away in the opposite direction.  
+He hurried forward to meet him.  
+We hurried upstairs to see what was going on.  
+With this, he hurried off the stage.  
+She hurried down the corridor as fast as she could.  
+More than 100 men hurried to the scene to donate their blood.  
