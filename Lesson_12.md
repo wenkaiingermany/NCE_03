@@ -159,3 +159,84 @@ Apparently, there is a good deal of truth in this idea.
 there is no truth in ...  
 There is no truth in the rumor.  
 The former picture is unduly optimistic while the latter unduly pessimistic.  
+  
+### Two men who recently spent five days on a coral island wished they had stayed there longer.  
+He then changed into overalls and spent the next eight hours as a dustman.  
+  
+wish 型虚拟语气  
+1. S. + wish + (that) + S. +  {
+    did / were  (现在)
+    had done    (过去)
+    would / should / could / might + do  (将来)
+}  
+I wish that I met my unclue now.  
+I wish that I had met my uncle yesterday.  
+I wish that I could meet my uncle tomorrow.  
+  
+2. would rather / sooner (that)  
+3. if only  
+I'd rather you started off now.  
+I'd rather you had been present yesterday.  
+If only Tessa were here now!  
+If only I had listened to my parents at that time.  
+  
+### They were taking a badly damaged boat from the Virgin Islands to Miami to have it repaired.  
+  
+from A to B  
+out of A towards B  
+for B from A  
+  
+from A to B  
+from A until / till B  
+A through B  
+  
+The store is open from Monday to Saturday.  
+The store is open from Monday until / till Saturday.  
+The store is open Monday through Saturday.  
+  
+### During the journey, their boat began to sink.  
+### They quickly loaded a small rubber dinghy with food, matches, and cans of beer and rowed for a few miles across the Caribbean until they arrived at a tiny coral island.  
+  
+load A into B  
+load B with A  
+He is loading groceries into his car.  
+He is loading his car with groceries.  
+  
+be loaded with ...  
+Small boats loaded with wares sped to the great liner as she was entering the harbour.  
+  
+Learning is like rowing unstream: not to advance is to drop back.  
+  
+### There were hardly any trees on the island and there was no water, but this did not prove to be a problem.  
+prove (to be) + adj. / n.  
+The search proved difficult, for the puma was often observed at one place in the morning and at another place twent miles away in the evening.  
+He knew it would not prove difficult in such a small village.  
+The operation, which lasted for over four hours, proved to be very difficult because of the hard resin which covered the skin.  
+  
+### The men collected rainwater in the rubber dinghy.  
+### As they had brought a spear gun with them, they had plenty to eat.  
+  
+fresh / salt water
+
+### They caught lobster and fish every day, and , as one of them put it 'ate like kings'.  
+These two pieces of equipment proved (to be) essential to their survival.  
+put it = express it 措辞说  
+I do|t know how to put it.  
+  
+to put it another way.  
+It's fairly risky. Or to put it another way, don't try this at home.  
+  
+let me put it this way  
+You had Professor Johnson before, right? How would you describe his lectures?  
+Well, let me put it this way: I could never stay awake in one of his classes without first drinking at least two cups of coffee.  
+  
+### When a passing tanker rescued them five days later, both men were genuinely sorry that they had to leave.  
+  
+sincerely  
+from the bottom of their hearts  
+  
+sorry: regretful  
+Both men genuinely regretted that they had to leave.  
+                             having to leave.  
+
+regrat to say / tell you / inform you ...  
