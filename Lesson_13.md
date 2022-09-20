@@ -68,3 +68,88 @@ bang
 The door banged (shut).  
 Don't bang the door.  
 The door shut with a slam / bang.  
+  
+### After her hushand had gone to work, Mrs. Richards sent her children to school and went upstairs to her bedroom.  
+  
+I sent the boy to school / bed.  
+I sent the boy to buy some beer.  
+  
+dispatch sb. to + n / to do  
+Am ambulance was immediately dispatched to the area.  
+The government dispatched 150 police to restore order.  
+  
+hall: 门厅  
+living room / sitting room / drawing room 客厅  
+dining room  
+kitchen  
+bathroom  
+guestroom  
+study  
+bedroom  
+master bedroom  
+storeroom  
+attic / loft  
+besement / cellar  
+balcony  
+
+### She was too excited to do any housework that morning, for in the evening she would be going to a fancy-dress party with her hushand.  
+  
+housework  
+homework  
+  
+household chore  家务  
+I spent all morning doing (the) housework / household chores.  
+  
+do / wash the dishes = do the washing-up  
+Have you asked your brother to do the dishes?  
+Thousands of times.  
+He has asked his brother to wash the dishes many times.  
+  
+do the laundry / washing  洗衣服  
+  
+将来进行时表示可预见性，或已经安排好的事情  
+He will soon be working in an office. He will be earning only half as much as he used to, ...  
+  
+(fancy-dress) costume  
+fancy-dress party = masquerade  
+
+### She intended to dress up as a ghost and as she had made her costume the night before, she was impatient to try it on.  
+
+intend to do  
+We intend to go to Australia next year.  
+
+mean to do  
+He always meant to go back one day but not to stay.  
+
+be going to do  
+I'm going to have my hair cut this weekend.  
+Both planes were going to take off on July 25th, but Latham failed to get up early enough.  
+have everz intention of doing ...  
+I had every intention of phoning her this morning, but I just didn't get a chance.  
+not intend to do  
+not mean to do  
+be not going to do  
+have no intention of doing ...  
+I had no intention of buying one, but I could not conceal the fact that I was impressed by the size of the diamonds.  
+  
+dress up as ...  打扮成...的模样  
+dress sb. up as ...  
+We dressed him up as a gorilla.  
+..., he immediately telephoned the police and informed them that two students dressed up as workmen were tearing up the road with a pneumatic drill.  
+He went to the fancy-dress party dressed up as a ghost.  
+  
+disguise sb. as ...  
+He disguised himself as a dustman.  
+disguised as ...  
+Alfred the Great acted as his own spy, visiting Danish camps disguised as a minstrel.  
+  
+the night before  
+the earlier / previous / preceding night  
+the night after  
+the next / following / succeeding night  
+  
+be impatient to do ...  
+be eager / anxious / itching / desperate / dying to do ...  
+can't wait to do ...  
+  
+try on <=> put on
