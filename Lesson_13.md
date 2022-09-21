@@ -152,4 +152,12 @@ be impatient to do ...
 be eager / anxious / itching / desperate / dying to do ...  
 can't wait to do ...  
   
-try on <=> put on
+try on <=> put on  
+Though the costume was composed only of a sheet, ...  
+  
+### After putting it on, Mrs. Richards went downstairs.  
+### She wanted to find out whether it would be comfortable to wear.  
+He is easy to fool. = to fool him is easy.  
+She is extremely difficult to please.  
+The machine is awkward to handle.  
+The man is hard to work with.  
