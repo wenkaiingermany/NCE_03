@@ -161,3 +161,36 @@ He is easy to fool. = to fool him is easy.
 She is extremely difficult to please.  
 The machine is awkward to handle.  
 The man is hard to work with.  
+  
+### Just as Mrs. Richards was entering the dining room, there was a knock on the front door.  
+At the very moment (when) Mrs. Richards was entering the dining room, ...  
+..., somebody knocked at the front door.  
+There is increasing interest in English in China.  
+There is general agreement that women should enjoy full equality with men.  
+The sea bed was scoured with powerful nets and there was tremendous excitement on board when a chest was raised from the bottom.  
+While the quality of legal journalism varies greatly, there is an undue reliance amongst many journalists on interpretations supplied to them by lawyers.  
+  
+### She knew that it must be the baker.  
+### She had told him to come straight in if ever she failed to open the door and to leave the bread on the kitchen table.  
+  
+straight: directly; immediately; without delay  
+I got home and went straight to bed.  
+Time is short so I'll get straight th the point.  
+  
+We thought we'd all go out for lunch today. Can you be ready to leave at one o'clock?  
+I have to pick up my car and do a couple of other errands. So I'll just come straight to the restaurant.  
+  
+If ever = whenever  
+Maybe she was asleep.  
+Maybe she was on the phone.  
+Maybe she was listening to music.  
+Maybe she was in the bathroom.  
+  
+Please leave a message.  
+Please leave your address.  
+Did anybody leave a jacket behind last night?  
+  
+### Not wanting to frighten the poor man, Mrs. Richards quickly hid in the small storeroom under the stairs.  
+Because she didn't want to frighten the poor man, ...  
+Because he didn't want to bee recognized, the suspect dressed up as a priest.  
+Not wanting to be recognized, the suspect dressed up as a priest.  
