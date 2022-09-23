@@ -194,3 +194,38 @@ Did anybody leave a jacket behind last night?
 Because she didn't want to frighten the poor man, ...  
 Because he didn't want to bee recognized, the suspect dressed up as a priest.  
 Not wanting to be recognized, the suspect dressed up as a priest.  
+  
+### She heard the front door open and heavy footsteps in the hall. Suddenly the door of the storeroom was opened and a man entered.  
+### Mrs Richards realized that it must be the man from the Electricity Board who had come to read the metre.   
+sth. occur to sb.  
+sth. strike sb.  
+sth. dawn on sb.  
+It suddenly occurred to one of the workers to open up box.  
+It suddenly struck me how we could improve the situation.  
+It suddenly dawned on me that this express was not roaring down the line at ninety miles an hour, but barely chugging along at thirty.  
+  
+the man from the Electricity Board  
+experts from the zoo  
+a spokeswoman for the Bank  
+editors of newspapers and magazines.  
+the water Board  
+the Gas Board  
+the board of directors  
+He is on the board / a board member.  
+read the meter / take a meter-reading  
+read music  
+read one's mind  
+read one's palm  
+  
+### She tried to explain the situation, saying 'It's only me', but it was too late.  
+Trying to explain the situation, she said 'it's only me'.
+汉语: parataxis 平行语，连动句，没有轻重之别  
+英语: hypotaxis 层次语，突出中心动词，次要动词状语化  
+Looking at his watch, he saw that it was one o'clock, but the bell struck thirteen times before it stopped.  
+  
+### The man let out a cry and jumped back several paces.  
+let out a cry / scream  
+utter a cry / scream  
+give a cry / scream  
+  
+### When Mrs. Richards walked towards him, he fled, slamming the door behind him.  
