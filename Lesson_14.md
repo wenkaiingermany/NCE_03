@@ -113,3 +113,66 @@ I'd rather that Susan were here now.
 have sth. done  
 He had his watch stolen.  
 King Charles I had his head cut off.  
+  
+### Six hundred years ago, Sir John Hawkwood arrived in Italy with a band of soldier and settled near Florence.  c
+As long ago as 1994, I arrived in Beijing with my parents and settled near the Temple of Heaven.  
+They'd like to see their daughter settle down, get married, and have kids.  
+Assuming that his family had been killed during an air raid, Hans settled down in a village fifty miles away where he had remained ever since.  
+  
+### He soon made a name for himself and came to be known to the Italians as Giovanni Acuto.  
+  
+make a name for oneself 出名  
+Ge You first made a name for himself in the movie 'Wan Zhu'.  
+  
+become famous overnight  
+With the success of their first recode, they became famous overnight.  
+  
+rise to fame  
+Mendoza rose to fame swiftly after a boxing match when he was only fourteen years old.  
+  
+A be known to B as...  B把A称为...  
+He was known to us all as Dickie and his eccentricity had become legendary long before he died.  
+Li Bai is known to the Chinese as 'poet-immortal'.  
+Basketball player Earvin Johnson soon made a name for himself and came to known to the Americans as 'Magic Johnson'.  
+  
+### Whenever the Italian city-states were at war with each other, Hawkwood used to hire his soldiers to princes who were willing to pay the high price he demanded.  
+  
+be at war with ...  
+China had been at war with Japan for 8 years.  
+  
+declare war on ...  
+The Chinese goverment had declared war on official corruption.  
+  
+wage war on ...  
+We continually wage war on them, for they contaminate our food, carry diseases, or devour our crops.  
+  
+### In times of peace, when business was bad, Hawkwood and his vmen would march into a city-state and, after burning down a few farms, would offer to go away if protection money was paid to them.  
+Business is bad / slow / slack  
+Business is good / booming  
+The general commanded his men to fire.  
+  
+subordinate: 下属  
+  
+As long ago as the 19030's, the Red Army had completed the cuccessful Long March during which they covered 25,000 li.  
+  
+offer to do ...  
+volunteer to do ...  
+Jill volunteered to go with me to the hospital.  
+provided (that) ...  
+providing (that) ...  
+as / so long as ...   
+So long as there's something to identify, we will give people their money back', said a spokeswoman for the Bank.  
+on condition (that) ...  
+only if ...  
+She will go only if Peter goes.  
+Only if Peter goes will she go.  
+  
+### Hawkwood made large sums of money in this way. In spite of this, the Italians regarded him as a sort of hero.  
+  
+### When he died at the age of eighty, the Florentines gave him a state funeral and had a picture painted which was dedicated to the memory of 'the most valiant soldier and most notable leader, Signor Giovanni Haukodue'.  
+a state funeral  
+a state visit  
+a state banquet 国宴  
+state affairs  
+the State Council 国务院  
+When Ronald Reagan died at the age of 93, the Americans gave him a state funeral and had a statue built which was dedicated to the memory of the great president.  
