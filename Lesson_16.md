@@ -80,3 +80,49 @@ I apologized to him for being late.
 make an apology to sb. for sth.  
 say sorry to sb. for sth.  
 be apologetic about sth.  
+  
+### Mary and her husband Dimitri lived in the tiny Village of Perachora in southern Greece.  
+in southern Greece = in the south of Greece  
+southern, northern, eastern, western  
+northeastern    
+She comes from western China.  
+She comes from the west of China.  
+Jane and her parents live in the tiny town of Dandong in northeastern China.  
+Jane and her parents live in the tiny town of Dandong in the northeast of China.  
+  
+Greece  
+Greek  
+Greek mythology  
+It's all Greek to me.  
+  
+### One of Mary's prize possessions was a little white lamb which her husband had given her.  
+... a little white lamb which had been a present from her husband.  
+
+### She kept it tied to a tree in a field during the day and went to fetch it every evening.  
+  
+keep + 宾语 + 宾补 (adj./分词/介词短语)  
+The coat will keep you warm.  
+He kept the fire burning.  
+It's rude to keep people waiting.  
+Keep your nose out of my affairs!  
+  
+bring  
+He brought a friend to my home.  
+  
+take  
+Don't forget to take an umbrella.  
+  
+fetch / get  
+Please fetch / get me some coffee.  
+Go fetch!  
+
+### One evening, however, the lamb was missing.  
+be missing / be lost / disappear(without trace)  
+..., the lamb was lost.  
+..., the lamb disappeared(without trace).  
+  
+### The rope had been cut, so it was obvious that the lamb had been stolen.  
+..., so it was clear / obvious / apparent / that the lamb had been stolen.  
+..., so clearly / obviously / apparently the lamb had been stolen.  
+  
+All the things I had packed so carefully were in a dreadful mess, so it was clear / obvious / apparent that the jewels had been stolen.    
