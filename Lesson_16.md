@@ -125,4 +125,122 @@ be missing / be lost / disappear(without trace)
 ..., so it was clear / obvious / apparent / that the lamb had been stolen.  
 ..., so clearly / obviously / apparently the lamb had been stolen.  
   
-All the things I had packed so carefully were in a dreadful mess, so it was clear / obvious / apparent that the jewels had been stolen.    
+All the things I had packed so carefully were in a dreadful mess, so it was clear / obvious / apparent that the jewels had been stolen.  
+  
+### When Dimitri came in from the fields, his wife told him what had happened. Dimitri at once set out to find the thief.  
+set out to do (有目的地)开始做某事  
+The jounalist immediately set out to obtain these important facts, but he took a long time to send them.  
+  
+### He knew it would not prove difficult in such a small village.  
+such a small village  
+so small a village  
+such an interesting book  
+so interesting a book  
+  
+many / much / few / little  
+so many people  
+so much time  
+so few students  
+so little money  
+  
+so little a boy  
+such a little boy  
+  
+### After telling several of his friends about the theft, Dimitri found out that his neighbor, Aleko, had suddenly acquired a new lamb.  
+  
+tell sb. (about) sth.  
+report / relate / recount sth. to sb.  
+  
+After reporting / relating / recounting the theft to several of his friends, ...  
+We know instinctively, just as beekeepers with their bees, that misfortune might overtake us if the important events of our lives were not related to it.  
+  
+The experts were now fully convinced (of) that the animal was a puma, but where had it come from?  
+  
+in that ... = because    
+except that ... = but that ...  
+  
+### Dimitri immediately went to Aleko's house and angrily accused him of stealing the lamb.  
+  
+### He told him he had better than return it or he would call the police.  
+had better do sth. or (else) ...  威胁的语气  
+do sth. before ...    
+otherwise / or (else)  
+You'd better go out at once or (else) I'll throw you out of the window.  
+Get away form here before I call the police.  
+Put on a heavy coat, otherwise / or (else) you'll catch a cold.  
+  
+had better do sth.  建议
+You'd better pay him a visit tomorrow.  
+  
+You might as well do ...  不妨 ...  
+It might be better to do ...  
+I suggest you do ...  
+  
+call the police  
+go to the police  
+inform the police  
+At first, she decided to go to the police, but fearing that she would never see Rastus again--the letter had made that quit clear--she changed her mind.  
+  
+### Aleko denied taking it and led Dimitri into his backyard.  
+deny + sth./doing/that ...  
+Aleko denied the accusation/charge.  
+Aleko denied that he had taken it.  
+
+admit/acknowledge + sth./doing/that...  
+
+lead sb.  
+show sb.  
+usher sb.  
+George showed me to the guestroom which, he said, was rarely used.  
+The secretary ushered me into his office.  
+  
+### It was true that he had just bought a lamb, he explained, but his lamb was black.  
+It is true that ..., but ...  
+It is true that China is still a developing country, but she is full of potential.  
+Admittedly, ... but ...  
+Granted, ..., but ...  
+  
+Admittedly, I could have tried harder, but I still don't think all this criticism is fair.  
+Granted, he doesn't look too bad for his age, but I don't fancy him.  
+Granted, a snobbery of camping itself, based upon equipment and techniques, already exists; but it is of a kind that, if he meets it, he can readily understand and deal with.  
+  
+It is true that / Admittedly, / Granted, ..., 
+    but that is not to say that ...  
+    but it does not follow that ...  
+    but it does not necessarily mean that ...  
+    but there is no guarantee that ...  
+  
+It is true that many college students choose to pursue their graduate studies, but it does not necessarily mean that they want to be scholars.  
+  
+### Ashamed of having acted so rashly, Dimitri apologized to Aleko for having accused him.  
+be ashamed of ...  
+Being ashamed of having acted so rashly, Dimitri apologized to Aleko for having accused him.  
+The gaoler looked on eagerly, (being) anxious to see if his fellow actor had at last learnt his lines.  
+He used to sleep during the day and work at night, (being) quite unaware of the fact that he had become the ghost of Endley.  
+(Being) Tired of sleeping on the floor, a young man in Teheran saved up for years to buy a real bed.  
+  
+doing           being done  
+having done     having been done  
+  
+Dimitri made an apology to Aleko for having accused him.  
+Dimitri said sorry to Aleko for having accused him.  
+  
+Ashemed of having acted so inattentively, I apologized to Mary for having broken her favorite vase.  
+  
+### While they were talking it began to rain and Dimitri stayed in Aleko's house until the rain stopped.  
+  
+### When he went outside half an hour later, he was astonished to find that the little black lamb was almost white.  
+  
+half an hour  
+an hour and a half  
+  
+be surprised / amazed / astonished / astounded to find that / to learn that etc.  
+
+When the archaeologists reconstructed the fragments, they were amazed to find that the goddess turned out to be a very modern-looking woman.  
+  
+A short time ago, villagers were astonished the learn that the ghost of Endley had died.  
+  
+### Its wool, which had been dyed black, had been washed clean by the rain!  
+  
+dye sth. black / blue / blonde etc.  
+Jane has dyed her hair blonde.  
