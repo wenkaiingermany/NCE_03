@@ -91,4 +91,76 @@ capability of ...
 You have the capability to do / of doing this job well.  
 
 aptitude for ...  
-At an early age Susan showed an aptitude for languages.    
+At an early age Susan showed an aptitude for languages.  
+
+### Verrazano, an Italian about whom little is known, sailed into New York Harbour in 1524 and named it Angouleme.  
+  
+know of / about ...  
+hear of / about ...  
+learn of / about ...  
+I don't know him personally, though I know of / about him.  
+George was not too upset by his experience because the lady who owns the sweet shop heard about his troubles and rewarded him with a large box of chocolates.  
+They support the cables from which bridge has been suspended.  
+在正式书面语中，若关系代词作介词宾语，需将介词置于关系代词之前，非正式文体无此限制。    
+This is the house in which I lived for 10 years.  
+This is the house which I lived in for 10 years.  
+  
+I have read the poem of which she is speaking.  
+I have read the poem which she is speaking of.  
+  
+about whom / which little is known 鲜为人知的...  
+Mary and her hushand Dimitri lived in Perachora, a tiny Greek village about which little is known.  
+  
+Zhang Ji, a chinese poet about whom little is known, once wrote a famous poem "Mooring by Maple Bridge at Night".  
+
+name sb. ...  
+We named our daughter Sarah.  
+
+name ... after ...  
+He was named after his father.    
+  
+### He described is as 'a very agreeable situation located within two small hills in the midst of which flowed a great river.'  
+  
+describe ... as (being) ...  
+The man was described as (being) tall and dark, and aged about 20.  
+Those who never have to move house become indiscrinate collectors of what can only be described as clutter.  
+  
+agreeable adj. pleasant  
+We spent a most agreeable evening by the river.  
+  
+in the midst of = in the middle of  
+in the midst of the crowd  
+In the midst of two small hills flowed a great river.  
+A great river flowed in the midst of two small hills.  
+全部倒装，把全部谓语置于主语之前。  
+表示位置或次序的状语置于句首，只要满足两个条件，要用全部倒装。1. 主语不是代词，2.谓语动词不是及物动词。  
+  
+A subway station stands in front of a huge shopping mall.  
+In front of a huge shopping mall stands a subway station.  
+  
+The restaurant is in a very convenient situation located right in the center of a huge shop mall in front of which stands a subway station.  
+  
+### Though Verrazano is by no means considered to be a great explorer, his name will probably remain immortal, for on November 21st, 1964, the longest suspension bridge in the world was named after him.  
+  
+by no means = not by any means: not at all  
+She is by no means pretty.  
+She's not a bad kid, by any means.  
+By no means can theory be separated from pratice.  
+  
+consider ... to be ...  
+We consider this (to be) very important.  
+He was considered (to be) a weak leader.  
+  
+If you lived in the Mediterranean, for instance, you would consider octopus a great delecacy.  
+  
+will remain immortal  永垂不朽  
+The name of Lei Feng will remain immortal.  
+  
+The tragic sinking of this great liner will always be remembered, for she went down on her first voyage with heavy loss of life.  
+  
+will always be remembered  
+The tragic missing of the Malaysian airliner will always be remembered.  
+  
+sth. be named after sb. = sth. be named for sb.  
+sth. be named in honor of sb.  
+The college is named after / for / in honor of George Washington.  
