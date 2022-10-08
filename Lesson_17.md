@@ -164,3 +164,85 @@ The tragic missing of the Malaysian airliner will always be remembered.
 sth. be named after sb. = sth. be named for sb.  
 sth. be named in honor of sb.  
 The college is named after / for / in honor of George Washington.  
+  
+### The Verrazano Bridge, which was designed by Othmar Ammann, joins Brooklyn to Staten Island.  
+
+join A to B  
+The island is joined to the mainland by a bridge.  
+
+link A with / to B  
+connect A with / to B  
+The Great St Bernard Pass connects Switzerland to Italy.  
+
+associate A with B  
+relate A to B  
+  
+### It has a span of 4,260 feet.  
+The arch has a span of 60 meters.  
+It has a span of 4,260 feet.  
+at the age of 52  
+an increase of 3%  
+a revenue of $3.4 billion  
+a pay raise of 4 percent  
+a salary of 30,000 dollars a year  
+The platforms extend to a depth of over 100 feet under the sea.  
+Above the surface of the water, the towers rise to a height of nearly 700 feet.  
+
+### The bridge is so long that the shape of the earth had to be taken into account by its designer.  
+So long is the bridge that the shape of the earth had to be taken into account by its designer.  
+  
+The length of the bridge is such that the shape of the earth had to be taken into account by its designer.  
+Such is the length of the bridge that the shape of the earth had to be taken into account by its designer.  
+  
+Such is human nature, that a great many people are often willing to sacrifice higher pay for the privilege of becoming white-collar workers.  
+  
+The conditions of society are such that skills have to be paid for in the same way that goods are paid for at a shop.  
+  
+take ... into account  
+If you take inflation into account, we actually spend less now.  
+We must take into account the boy's long illness.  
+
+take account of ...  
+These figures do not take account of changed in the rate of inflation.  
+  
+take ... into consideration  
+I always take fuel consumption into consideration when buying a car.  
+Before we come to a decision, we must take into consideration all the relevant facts.  
+
+The candidates' experience will be taken into consideration.  
+  
+### Two great towers support four huge cables. The towers are built on immense underwater platform made of steel and concrete.  
+  
+The Titanic turned just in time, narrowly missing the immense wall of ice which rose over 100 feet out of the water beside her.  
+  
+The train will depart from platform 3.  
+The speaker mounted the platform to denounce the policy.  
+  
+ferro-concrete  
+  
+### The platforms extend to a depth of over 100 feet under the sea.  
+The deepest known cave in the world is the Gouffre Berger near Grenoble. It extends to a depth of 3,723 feet.  
+  
+go down to as much as ...  
+The deepest holes of all are made for oil, and they go down to as much as 25,000 feet.  
+  
+stand ... high  
+She stood three feet high and her hands rested on her hips.  
+  
+rise to height of ...  
+Above the surface of the water, the towers rise to a height of nearly 700 feet.  
+  
+How do I love thee?  
+How do I love thee?  
+Let me count the ways.  
+I love thee to the depth and breadth and height my soul can reach.  
+  
+### These alone took sixteen months to build.  
+These books alone cost me 2,000 yuan.  
+Time alone will tell.  
+Persistence and determination alone are omnipotent.  
+  
+take (sb.) some time (to do sth.)  
+Even if you travel in ideal weather, sea journeys take a long time.  
+It took me over half an hour to get rid of him.  
+The journalist immediately set out to obtain these important facts, but he took a long time to send them.  
