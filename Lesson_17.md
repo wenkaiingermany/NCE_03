@@ -246,3 +246,79 @@ take (sb.) some time (to do sth.)
 Even if you travel in ideal weather, sea journeys take a long time.  
 It took me over half an hour to get rid of him.  
 The journalist immediately set out to obtain these important facts, but he took a long time to send them.  
+  
+### Above the surface of the water, the towers rise to a height of nearly 700 feet.  
+  
+rise to a height of ...  
+A tall steel tower rising to a height of nearly 200 feet will rest on the platform.  
+  
+### They support the cables from which the bridge has been suspended. Each of the four cables contains 26,108 lengths of wire.  
+  
+a length of rope / pipe /wire etc.  
+  
+a sum of money  
+a bar of chocolate  
+a bar / cake of soap  
+a slice of butter  
+a loaf of bread  
+a tube of toothpaste  
+a cone of ice-cream  
+a bunch of grapes / bananas  
+a flash / bolt of lightning  
+a peal of thunder  
+a gust of wind  
+a pane of glass  
+a bouquet of flowers  
+  
+### It has been estimated that if the bridge were packed with cars, it would still only be carrying a third of its total capacity.  
+  
+it is estimated that ...  
+it is said that ...  
+it is believed that ...  
+it is reported that ...  
+  
+It is said that if anyone touches the tree, he will have bad luck; if he picks a leaf, he will die.  
+It has been said that everyone lives by selling something.  
+  
+"if"型的虚拟语气  
+1. 与现在事实相反  
+if + S. + did / were, S. + would / should / could / might + do  
+If you lived in the Mediterranean, for instance, you would consider octopus a great delicacy.  
+If she were alive today she would not be able to air her views on her favourite topic of conversation: domestic servants.  
+2. 与过去事实相反  
+if + S. + had done, S. + would / should / could / might + have done  
+If they had only had one more child, the fact would have passed unnoticed.  
+If the Houses of Parliament had not been burned down in 1824, the great clock would never have been erected.  
+3. 于未来的趋势相反  
+if + S. + should do, S. + would / should / could / might + do  
+if + S. + did / were to do, S. + would / should / could / might + do  
+If it should rain tomorrow, you could stay at home.  
+If the sun were to rise in the west, I would lend you the money.  
+
+be packed with ...  
+be crowed with ...  
+be crammed with ...  
+be thronged with ...  
+The island was packed with tourists.  
+The narrow roads were crowded with holiday traffic.  
+The guide is crammed with useful information.  
+The streets were thronged with Christmas shoppers.  
+  
+a third of ... / one-third of ...  
+two-thirds of ...  
+Two-thirds of the profits are given to charities.  
+### However, size and strength are not the only important things about this bridge.  
+### Despite its immensity, it is both simple and elegant, fulfilling its designer's dream to create 'an enormous object drawn as faintly as possible'.  
+  
+Although it is immense, ...  
+Despite its importance, the meeting has to be postponed.  
+Despite its scarity, water is still wasted in the country.  
+Despite his cleverness, he cannot figure out how to do it.  
+  
+fulfil / fulfill  
+fulfil / realize / achieve one's dream  
+one's dream come true  
+dream of doing sth. / to do sth.  
+
+He had finally achieved his dream of becoming a pilot.  
+Her dream to enter the famous university came true.  
