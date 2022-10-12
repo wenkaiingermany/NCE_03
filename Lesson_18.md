@@ -187,3 +187,109 @@ I am adapted to Beijing's dry climate.
   
 so-called: 名不副实的  
   
+### In spite of this, some people--including myself--were surprised by a recent exhibition of modern sculpture.  
+  
+### The first thing I saw when I entered the art gallery was a notice which said: 'Do not touch the exhibits. Some of them are dangerous!'  
+  
+say v. 上面写着 ...  
+The sign says 'Keep out'.  
+What did the letter say?  
+  
+What time is it by your watch?
+My watch says four o'clock.  
+  
+A tiny asterisk conducted me to a footnote at the bottom of the page. It said:'This service has been suspended.'  
+  
+go v. 一句话一个故事是怎么说的; 一首歌是怎么唱的  
+As the old saying goes, 'look before you leap'.  
+  
+The story goes that the prince was turned to a frog.  
+How does the song go?  
+  
+keep away from the exhibits.  
+  
+### The objects on display were pieces of moving sculpture.  
+  
+### Oddly shaped forms that are suspended from the ceiling and move in response to a gust of wind are quite familiar to everybody.  
+a strangely shaped carrot  
+She has a perfectly shaped figure.  
+heart-shaped  
+pear-shaped  
+V-shaped  
+  
+be suspended from ...  
+hang from ...  
+  
+in reponsed to ...  
+The president stepped down in response to public pressure.  
+  
+a gust of wind  
+a flash of lightning  
+a peal of thunder  
+a fit of coughing  
+a round of applause  
+peals/gales of laughter  
+  
+be familiar with ...  
+be familiar to ...  
+Many readers are familiar with the name Harry Potter.  
+The name Harry Potter is familiar to many readers.  
+  
+### These objets, however, were different. Lined up against the wall, there were long thin wires attached to metal spheres.  
+  
+line sth. up  
+The books are lined up on the shelf.  
+  
+line up  
+Line up, everybody!  
+  
+cut in line  
+Donot cut in line.  
+  
+attach sth. to sth.  
+  
+Lined up on the table, there are a number of brand-new computers connected to printers.  
+  
+### The spheres had been magnetized and attracted or repelled each other all the time.  
+  
+all the time  = on and on  = continuously = constantly = without stopping  
+
+### In the centre of the hall, there were a number of tall structures which contained coloured lights.  
+  
+colored lights  
+colorful lights  五颜六色的灯  
+... colorful rugs from Persia  
+  
+### Theses lights flickered continuously like traffic lights which have gone mad.  
+  
+continuously 一刻不停地  
+continually  总是  
+be always / continually doing  
+He is continually being late.  
+He is continually asking me for money.  
+  
+go mad / crazy / wild / bananas / nuts / insane  
+Oceans apart, day after day, and I slowly go insane.  
+  
+### Sparks were emitted from small black boxes and red lamps flashed on and off angrily.  
+  
+on and off = off and on 断断续续地  
+  
+### It was rather like an exhibition of prehistoric electronic equipment.  
+  
+hyperbole 夸张  
+Everybody was clapping their hands off.  
+I didn't sleep a wink last night.  
+He has a skeleton of a wife.  
+  
+### These peculiar forms not only seemed designed to shock people emotionally, but to give them electric shocks as well!  
+  
+pun 双关  
+A very dear cat  
+More sun and air for your son and heir.  
+We must all hang together or we shall all hang separately.  
+-- What do lawyers do when they die?  
+-- Lie still.  
+  
+-- The professor tapped on his desk and shouted, "Gentlemen, order!"  
+-- The entire class yelled, "Beer!"  
