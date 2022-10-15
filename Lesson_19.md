@@ -120,4 +120,104 @@ You can stretch your legs on the spacious decks, ...
 ### One evening, however, he failed to arrive. Mrs. Ramsay got very worried. She looked everywhere for him but dould not find him.  
   
 He could not find his fifty pence anywhere, ...  
+  
+### Three days after Rastus' disappearance, Mrs. Ramsay received an anonymous letter.  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Altantic, a huge iceberg was suddenly spotted by a look-out.  
+  
+receive sth. from sb.  
+get sth. from sb.  
+hear from sb. 有某人的音信  
+  
+### The writer stated that Rastus was in safe hands and would be returned immediately if Mrs. Ramsay paid a ransom of $1,000.  
+in safe hands  
+Don't worry about the children. They are in safe hands.  
+You can be sure your children are in good hands.  
+I am afraid that nuclear weapons could fall into the wrong hands.  
+  
+In 1908 Lord Northcliffe offered a prize of $1,000 to the first man who would fly across the English Channel.  
+  
+a reward of $1,000  
+a fund of $1,000  
+a debt of $1,000  
+an investment of $1,000  
+a scholarship of $1,000  
 
+### Mrs. Ramsay was instructed to place the money in a cardboard box and to leave it outside her door.  
+  
+instruct sb. to do  
+Last year a journalist had been instructed by a well-known magazine to write an article on the president's palace in a new African republic.  
+  
+### At first, she decided to go to the police, but fearing that she would never see Rastus again--the letter had made that quite clear--she changed her mind.  
+  
+go to the police  
+He told him he had better return it of he would call the police.  
+inform the police  
+  
+be afraid of ...  
+be afraid that ...  
+... but (being) afraid of never seeing Rastus again ...  
+... but afraid that she would never see Rastus again ...  
+  
+for fear of ...  
+for fear that ...  
+I didn't turn on the light, for fear of waking the baby.  
+I didn't turn on the light, for fear that it would wake the baby.  
+  
+... but for fear of never seeing Rastus again ...  
+... but for fear that she would never see Rastus again ...  
+  
+make sth. clear / explicit  
+Possible side effects must be made clear / explicit.  
+  
+clarify  
+Could you clarify your remarks?  
+clarify one's position  
+  
+### She withdrew $1,000 from her bank and followed the kidnappers' instructions.  
+  
+### The next morning, the box had disappeared but Mrs Ramsay was sure that the kidnapper would keep his word.  
+  
+the next / following / succeeding morning  
+the morning after  
+keep one's word / promise  
+break one's word / promise.  
+He is a man of his word.  
+  
+### Sure enough, Rastus arrived punctually at seven o'clock that evening.  
+sure enough 果然  
+The man took heart and, sure enought, on New Year's Eve he was able to hobble along to a party.  
+  
+### He looked very well, though he was rather thirsty, for he drank half a bottle of milk.  
+well adj. 健康的  
+  
+### The police were astounded when Mrs. Ramsay told them what she had done.  
+be astounded  惊呆了  
+  
+When the archaeologists qreconstructed the fragments, they were amazed to find that the goddess turned out to be a very modern-looking woman.  
+be amazed 难以理解的惊讶  
+  
+When he went outside half an hour later, he was astonished to find that the little black lamb was almost white.  
+be astonished 难以相信的惊讶  
+
+A short time ago, villagers were astonished to learn that the ghost of Endley had died.  
+  
+### She explained that Rastus was very dear to her. Considering the amount she paid, he was dear in more ways than one!  
+Strictly speaking, the whale isn't a fish.  
+Judging from his face, he must be ill.  
+To make a long story short, he wanted money, and tried to get it without working.  
+The team has lost the last two games and, to make matters worse, two of its best players are injured.  
+  
+considering  
+including  
+excluding  
+concerning  
+regarding  
+respecting  
+China's foreign concerning / regarding / respecting Japan.  
+  
+in more ways than one  
+Known to millions, far and wide, for his book 'A Brief History of Time', Stephan Hawking was a star scientist in more ways than one.  
+  
+'empty nest' problem  
+'empty nester'  
+'empty nest' syndrome  
