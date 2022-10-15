@@ -67,3 +67,57 @@ Is it possible for me to exchange some Britsh pounds for U.S. dollars?
 What's today's exchange rate for U.S. dollars?  
   
 direct debit 直接扣款  
+  
+pun 双关  
+dear: loved / valued; expensive / costly  
+  
+Stephan Hawking was a star scientist.  
+  
+### Kidnappers are rarely interested in animals, but they recently took considerable interest in Mrs. Eleanor Ramsay's cat.  
+  
+rarely      seldom      almost never    hardly ever     
+Rarely are kidnappers interested in animals.  
+  
+take / have an interest in ...  
+take / have no interest in ...  
+take / have little interest in ...  
+take / have considerable interest in ...  
+Chilren are rarely interested in history, but little John recently took considerable interest in ancient sculpture.  
+  
+### Mrs. Eleanor Ramsay, a very wealthy old lady, has shared a flat with her cat, Rastus, for a great many years.  
+  
+wealthy / rich / affluent / well-off / well-to-do  
+  
+share a house / apartment / flat / room with ...  
+I shared an apartment with Kim when I first came to Beijing.  
+  
+room with ...  
+I roomed with him at college.  
+  
+live with ...  
+cohabit with ...  
+  
+A sorrow shared by two is half sorrow; a happiness shared with two is double happiness.  
+We share an interest in history. = hava sth. in common  
+  
+Alfred Bloggs, a dustman for the Ellesmere Corporation, has shared an apartment with his colleague, George, for a great many years.  
+  
+### Rastus leads an orderly life. He ususally takes a short walk in the evenings and is always home by seven o'clock.  
+lead / live a ... life.  
+  
+take a walk / stroll  
+take a walk / stroll  
+go for a walk / stroll  
+walk the dog 遛狗  
+stretch one's legs  
+I happened to be walking in my garden when I noticed a huge number of snails taking a stroll on some of my prize plants.  
+  
+What do you want to do after breakfast?  
+Why don't we take a walk down to the river?  
+  
+You can stretch your legs on the spacious decks, ...  
+  
+### One evening, however, he failed to arrive. Mrs. Ramsay got very worried. She looked everywhere for him but dould not find him.  
+  
+He could not find his fifty pence anywhere, ...  
+
