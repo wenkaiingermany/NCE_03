@@ -73,3 +73,86 @@ Latham made another attempt a week later and got within half a mile of Dover, bu
   
 Over a month passed before the body was found.  
 Over a decade passed before the secret was revealed.  
+  
+### On July 19th, 1909, in the early morning, Hubert Latham took off from the French coast in his plane the 'Antoinette IV'.
+in the early / late morning / afternoon / evening  
+at dawn / the crack of dawn / daybreak / sunrise  
+at dusk / sunset / sundown / twilight  
+  
+take off <-> land  
+Flight No.714 took off / landed at 8:30 a.m.  
+take off sth. 脱衣服  
+put on sth.  穿衣服  
+He took of / put on his coat.  
+take ... off ... 使 ... 脱离 ...  
+It is almost impossible to take your mind off the journey.  
+She was so pretty--I couldn't take my eyes off her.  
+"Have you seen James without his beard?"  
+"I know--it takes years off him!"  
+  
+take time off 请假  
+  
+'Do you still live there?'  
+'Oh yes, yes. My husband's there now. He couldn't take time off to come to New York with me.'  
+  
+I have to take time off from work / school to go to the dentist.  
+take a day off  
+take the afternoon off  
+  
+### He had travelled only seven miles across the Channel when his engine failed and he was forced to land on the sea.  
+  
+He has to travel 20 miles to work every day.  
+  
+fail v. (零部件) 失灵  
+The breaks failed and the car crashed into a tree.  
+  
+break down v. (交通工具，大型机器)抛锚，停止工作  
+The car / bus / train / washing machine broke down.  
+
+malfunction v.  
+The satellite entered the orbit and quickly malfunctioned.  
+  
+sth. goes wrong with ...  
+Something's gone wrong with my computer.  
+  
+be forced to do 被迫  
+She was forced to retire early due to ill health.  
+... and he had to make a forced landing.  
+  
+be / feel obliged to do 出于责任或道义 必须做某事  
+be / feel compelled to do  
+President Nixon felt compelled to resign.  
+  
+be / feel impelled to do  
+I felt impelled to tell her the truth.  
+  
+be / feel bound to do 由于条约  
+All the countries are bound to submit to the regulations.  
+  
+It is necessary for sb. ... to do  
+  
+must do / have to do  
+  
+### 'Antoinette' floated on the water until Latham was picked up by a ship.  
+  
+pick up <-> sb.  
+  
+"I'd really like to pick up Grangpa at the railroad station."  
+"Railroad stations or airports, Grandpa always tells us he'll get here by himself."  
+"He's something"  
+  
+save / rescue  
+When you rescued your trousers, did you find the note was whiter than white?  
+  
+When a passing tanker rescued them five days later, both men were genuinely sorry that they had to leave.  
+
+salvage  
+He tried desperately to salvage belongings from the burning house.  
+The salvage operation had been a complete failure.  
+  
+pick up <-> sth.  
+The phone rang and I picked it up.  
+He has often described to me how he picked up a masterpiece for a mere $50.  
+  
+pick up where we left off  从中断的地方继续  
+After lunch shall me pick up where we left off?  
