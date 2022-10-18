@@ -156,3 +156,64 @@ He has often described to me how he picked up a masterpiece for a mere $50.
   
 pick up where we left off  从中断的地方继续  
 After lunch shall me pick up where we left off?  
+  
+### Two days later, Louis Bleriot arrived new Calais with a plane called 'No.XI'.  
+Louis  
+Illinois  
+Calais  
+Charles  
+Chamonix  
+  
+### Bleriot had been making planes since 1905 and this was his latest model.  
+model n. 型号  
+the latest model  
+the most popular model  
+My car is the latest model.  
+  
+### A week before, he had completed a successful overland flight during which he covered twenty-six miles.  
+  
+flight  飞行  
+aviation  航空  
+voyage  航行  
+navigation  航海  
+  
+As long ago as the 1930's, the Red Army had completed the successful Long March during which they covered 25,000 li.  
+  
+### Latham, however, did not give up easily.  
+stick it out  坚持下去  
+Latham, however, stuck it out.  
+  
+### He, too, arrived near Calais on the same day with a new 'Antoinette'.  
+  
+### It lookes as if there would be an exciting race across the Channel.  
+It seems / looks as if / as though 看似...  
+It seemed as if there would be a heated argument betwenn them.  
+  
+promise to do 有可能会...  
+It promised to be an exciting race across the Channel.  
+It promises to be warm today.  
+Groundbreaking research by two French geophysicists promises to shed some light on the mystery.  
+  
+### Both planes were going to take off on July 25th, but Latham failed to get up early enough. After making a short test flight at 4.15 a.m., Bleriot set off half an hour later.  
+set out / off  
+start out / off  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Atlantic, a huge iceberg was suddenly spotted by a lookout.  
+  
+### His great flight lasted thirty-seven minutes. When he landed near Dover, the first person to greet him was local policeman.  
+  
+The next man to approach me was selling expensive pens and watches.  
+  
+### Latham made another attempt a week later and got within half a mile of Dover, but he was unlucky again. His engine failed and he landed on the sea for the second time.  
+within ... of ...  离...不到...  
+I live within a mile of the city center.  
+The company is within a week of bankruptcy.  
+  
+for the second time 第二次  
+at the second time 在第二次的时候  
+  
+In 1929, three years after his flight over the North Pole, the American explorer, R.E. Byrd, successfully flew over the South Pole for the first time.  
+  
+Is something still, Robbie?  
+I'll be OK.  
+Going away to college for the first time always makes one  a little nervous.  
+I guess so, I'll be Ok. I just need time to think.  
