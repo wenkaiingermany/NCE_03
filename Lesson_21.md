@@ -96,3 +96,62 @@ Academy Award (Oscar)
   
 academic  
 academic year  
+academic research  
+  
+### Boxing matches were very popular in England two hundred years ago.  
+a boxing / basketball / football / volleyball match  
+It looked as if there would be an exciting race across the Channel.  
+a car / boat / horse / swimming race  
+contest  
+a speech / beauty / dance contest  
+  
+### In those days, boxers fought with bare fists for prize money.  
+in thoses days  在当初  
+Though in those days, traveling was not as easy as it is today, steam boats carried thousands of visitors across the Channel from Europe.  
+In those days wandering minstrels were welcome everywhere.  
+  
+these days  
+nowdays  
+today  
+These days, people who do manual work often receive far more money than people who work in offices.  
+  
+with bare fists  
+with naked fists  
+with one's bare hands  
+  
+### Becaus of this, they were known as 'prizefighters'.  
+because ...  
+sine ...  
+as ...  
+for ...  
+in that ...  
+now (that) ...  
+Now that a tunnel has been built through the mountains, the Pass is less dangerous, ...  
+  
+because of ...  
+by reason of ...  
+due to ...  
+owing to ...  
+thanks to ...  
+on account of ...  
+  
+Do you think professor Smith will cancel class on account of the special conference?  
+Not likely.  
+She doubts class will be canceled.  
+  
+know A as B  
+He soon made a name of himself and came to be known to the Italian as Giovanni Acuto.  
+  
+refer to A as B  
+People who work in offices are frequently referred to as 'white-collar workers' for the simple reason that they usually wear a collar and tie to go to the work.  
+  
+call A B  
+From now on, He will wear a suit all day and others will call him 'Mr.Bloggs', not 'Alf'.  
+  
+address A as B  
+  
+### However, boxing was very crude, for there were no rules and a prize-fighter could be seriously injured or even killed during a match.  
+  
+suffer (from) a broken tooth  
+... a prizefighter could suffer a serious injury or even be killed during a match.  
+
