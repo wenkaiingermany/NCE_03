@@ -154,4 +154,95 @@ address A as B
   
 suffer (from) a broken tooth  
 ... a prizefighter could suffer a serious injury or even be killed during a match.  
+  
+### One of most colourful figures in boxing history was Daniel Mendoza, who was born in 1764.  
+  
+colorful: interesting, exciting, vivid  
+figure: character, personality  
+I just wanna be a person, not a personality.  
+  
+### The use of gloves was not introduced until 1860, when the Marquis of Queensberry drew up the first set of rules.  
+introduce v. 开始推行; 开始采用  
+New safety measures will be introduced next month.  
+You can use my laptop freely.  
+The use of my laptop is welcome.  
+  
+draw up 起草  
+I've drawn up a list of candidates that I'd like to interview.  
+  
+... not ... until ..., when ...  
+The liberation of the Chinese people was not achieved until 1949, when Chairman Mao proclaimed the foundation of the People's Republic of China.  
+  
+### Though he was technically a prizefighter, Mendoza did much to change crude prizefighting into a sport, for he brought science to the game.  
+do much / a lot / a great deal to ...  
+do little to ...  
+do nothing to ...  
+  
+change ... into ...  
+exchange ... for ...  
+  
+Though it is technically a book, the Bible does much to change the crude world into a civilized one, for it brings faith to humanity.  
+  
+### In his day, Mendoza enjoyed tremendous popularity. He was adored by rich and poor alike.  
+  
 
+Every dog has his day.  
+Don't be disappointed: your day will come.  
+  
+Jay Chou enjoys tremendous popularity among the young.  
+  
+rich and poor  
+young and old  
+the rich and powerful  
+  
+alike: in the same way  
+The climate here is always hot, summer and winter alike.  
+  
+### Mondoza rost to fame swiftly after a boxing match when he was only fourteen years old.  
+rise to fame  
+She first rose to fame as a singer at the age of 16.  
+The rise to fame was swift.  
+  
+make a name for oneself  
+He soon made a name for hiself and came to be known to the Italians as Giovanni Acuto.  
+  
+become famous overnight  
+With the success of their first record, they became famous overnight.  
+  
+### This attracted the attention of Richard Humphries who was then the most eminent boxer in England.  
+  
+attract / draw / catch / capture / arrest one's attention / the attention of sb.  
+### He offered to train Mendoza and his young pupil was quick to learn.  
+offer to do 主动提出做某事  
+In times of peace, when business was bad, Hawkwood and his men would march into a city-state and, after burning down a few farms, would offer to go away if protection money was paid to them.  
+  
+pupil: apprentice 徒弟  
+  
+### If fact, Mendoza soon became so successful that Humphries turned against him.  
+turn (sb.) against ...  
+The wicked woman is trying to turn the boy against his father.  
+  
+... soon became so successful  
+that Humphries became jealous of him.  
+as to arouse Humphries' jealousy.  
+  
+### The two men quarrelled bitterly and it was clear that the argument could only be settled by a fight.  
+It is / was clear / obvious / apparent that ...  
+The rope had been cut, so it was obviuos that the lamb had been stolen.  
+  
+### A match was held at Stilton, where both men fought for an hour. The public bet a great deal of money on Mendoza, but he was defeated.  
+    he was beaten.  
+    he failed.  
+    he lost.  
+
+We finally beat that team.  
+We finally defeated that team.  
+We finally won the game.  
+We finally won the prize.  
+  
+### Mendoza met Humphries in the ring on a later occasion and he lost for a second time.  
+ring: boxing ring  
+  
+on / upon the occasion of his daughter's wedding  
+for a second time = for another time  
+Everyone went to the funeral, for the 'ghost' was none other than Eric Cox, a third brother who was supposed to have died as a young man.  
