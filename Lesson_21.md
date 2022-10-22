@@ -246,3 +246,44 @@ ring: boxing ring
 on / upon the occasion of his daughter's wedding  
 for a second time = for another time  
 Everyone went to the funeral, for the 'ghost' was none other than Eric Cox, a third brother who was supposed to have died as a young man.  
+  
+### It was not until his third match in 1790 that he finally beat Humphries and became Champion of England.  
+  
+champion  
+champagne  
+
+it was not until ... that ... and ...  
+It was not until the foundation of the People's Republic of China in 1949 that the Chinese people were finally liberated and became masters of the country.  
+Sir James Clark Ross had obtained a sounding of over 2,400 fathoms in 1839, but it was not until 1869, when H.M.S. Porcupine was put at the disposal of the Royal Society for several cruises, that a series of deep soundings was obtained in the Atlantic and the first smaples were collected by dredging the bottom.  
+  
+it was not unitl ..., when ..., that ... and ...  
+It was not until 1949, when Chairman Mao proclaimed the foundation of the People's Republic of China, that the Chinese people were finally liberated and became masters of the country.  
+  
+### Meanwhile, he founded a highly successful Academy and even Lord Byron became one of his pupils.  
+  
+meanwhile  
+at the same time  
+(in the) meantime  
+  
+highly successful  
+a highly successful play  
+  
+### He earned enormous sums of money and was paid as much as $100 for a single apprearance. Despite this, he was so extravagant that he was always in debt.  
+..., he was so extravagant that he always owed people money.  
+  
+i owe you (one).  
+How much do i owe you?  
+  
+"How much do I owe you?"  
+"Well, that'll be 18 dollars and 70 cents. No charge for the cleanup. It's on the house."  
+  
+### After he was defeated by a boxer called Gentleman Jackson, he was quickly forgotten. He was sent to prison for failing to pay his debts and died in poverty in 1836.  
+  
+send sb. to prison  
+put sb. in prison  
+jail / gaol sb.  
+lock up sb.  
+imprison sb.  
+incarcerate sb.  
+  
+biography
