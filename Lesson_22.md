@@ -101,7 +101,7 @@ on end 连续不断地
 in a row  
 successively  
   
-Die Linda ever finish that introductory chapter?  
+Did Linda ever finish that introductory chapter?  
 I'm not sure. She's spent hours on end rewriting it.  
 She worked on the chapter for quite a while.  
   
