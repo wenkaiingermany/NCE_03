@@ -66,3 +66,73 @@ go on to do ...
 go on doing ... 持续做某事  
 continue to do ...  = continue doing ...  
 carry on with ... = carry on doing ...  
+  
+learn / know sth. by heart = learn sth.  
+bear / keep sth. in mind  
+make a mental note  
+remember / recall / recollect sth.  
+remind sb. of sth.  
+bring back memories  
+  
+Richard, these are te'rrific pictures. This one really brings back memories.  
+  
+in retrpspect  
+In retrospect, I think my marriage was doomed from the beginning.  
+  
+... to remember  
+a day to remember  
+  
+Gandalf, my old friend ... this will be a night to remember.  
+  
+ring a bell  
+That name just doesn't ring a bell with me.  
+I don't recognize that name.  
+  
+have a short memory  
+Why did you come to the meeting late? I left a message with your roommate about the time change.  
+She has a very short memory and it really gets on my nerve sometimes.  
+Her roommate is unreliable about delivering messages.  
+  
+### Some plays are so successful that they run for years on end.  
+The movie has been running for 2 months.  
+The movie has ended its run.  
+  
+on end 连续不断地  
+in a row  
+successively  
+  
+Die Linda ever finish that introductory chapter?  
+I'm not sure. She's spent hours on end rewriting it.  
+She worked on the chapter for quite a while.  
+  
+It's raining again.  
+This makes if four days in a row. Do you think it'll ever stop?  
+She wishes thr rain would stop soon.  
+  
+### In many ways, this is unfortunate for the poor actors who are required to go on repeating the same lines night after night.  
+  
+in many ways  
+in many re'spects  
+in many aspects  
+in more ways than one  
+Considering the amount she paid, he was dear in more ways than one.  
+  
+require sb. to do 要求
+request sb. to do 请求  
+You're required not to smoke here.  
+You're requested not to smoke here.  
+  
+go on doing  
+keep (on) doing  
+  
+night after night  
+night by night  
+one night after another  
+  
+### One would expect them to know their parts by heart and never have cause to falter. Yet this is not always the case.  
+the case : a true situation  
+This is not always the case.  
+This is indeed the case.  
+This is not the case at all.  
+This might not be the case.  
+This is not necessarily the case.  
