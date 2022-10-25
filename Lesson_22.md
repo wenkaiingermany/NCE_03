@@ -136,3 +136,48 @@ This is indeed the case.
 This is not the case at all.  
 This might not be the case.  
 This is not necessarily the case.  
+  
+### A famous actor in a highly successful play was once cast in the role of an aristocrat who had been imprisoned in the Bastille for 20 years.  
+  
+highly successful  
+a highly successful Academy  
+  
+... was once cast as an aristocrat  
+... once performed / played / acted (the role / part of) an aristocrat  
+  
+be jailed / gaoled  
+be incarcerated  
+be locked up  
+  
+### In the last act, a gaoler would always come on to the stage with a letter which he would hand to the prisoner.  
+  
+act 幕  
+scene 场  
+It happens in Hamlet, Act 3, Scene 1.  
+  
+come on  
+There was great applause when the Russian ballerina came on.  
+  
+appear  
+Just then, the gaoler appeared with the precious letter in his bands.  
+  
+... with a letter and he would hand it to the prisoner.  
+... with a letter to hand to the prisoner.  
+
+### Even though the noble was expected to read the letter at each performance, he always insisted that it should be written out in full.  
+
+be expected to do  
+be supposed to do  
+should do  
+  
+Do you know if George is coming to the meeting?  
+Oh, no, I was supposed to tell you that he is sick and can't come.  
+表示 建议，要求，命令 动词后的宾语从句用 (should) do  
+order, ask, decide, demand, require, advise, recommend, suggest, insist  
+  
+He suggested that we (should) help them with English.  
+  
+The teacher ordered that the homework (should) be finished within half an hour.  
+  
+insist on ...  
+..., he always insisted on its being written out in full.  
