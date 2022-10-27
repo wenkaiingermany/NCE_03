@@ -181,3 +181,123 @@ The teacher ordered that the homework (should) be finished within half an hour.
   
 insist on ...  
 ..., he always insisted on its being written out in full.  
+  
+### One night, the gaoler decided to play a joke on his colleague to find out if, after so many performances, he had managed to learn the contents of the letter by heart.  
+play a joke on sb.  
+He added that a student had dressed up as a policeman and was playing all sorts of silly jokes on people.  
+  
+play a trick on sb.  
+He played a trick on his wife, but she beat him up.  
+  
+kid (sb.) / joke  
+Are you kidding (me)?  
+Are you joking?  
+  
+have a joke with sb.  
+I've just had a joke with the manager. 讲笑话  
+  
+make fun of sb.  
+The other children were always making fun of him because he was fat.  
+  
+make a fool of sb. 出丑  
+I suddenly realized that I was being made a fool of.  
+  
+play the fool (with sb.) 装傻  
+Stop playing the fool (with me). You'll fall!  
+
+### The curtain went up on the final act of the play and revealed the aristocrat sitting alone behind bars in his dark cell.  
+  
+the curtain goes up / rises  
+the curtain comes down / falls  
+The curtain rose ...  
+draw / pull the curtains  
+open / close the curtains  
+  
+on the final act  
+on ...  刚开始 ......  
+  
+all (alone / on one's own / by oneself)  
+She was sitting alone on a park bench.  
+I don't like walking home on my own at night.  
+Do you share the apartment or do you live by yourself.  
+Wendy was frightened, all alone in that big old house.  
+
+oneself 亲自  
+It's a strange mixture I make myself.  
+  
+I would not hear of the suggestion and said that I would fix it myself.  
+  
+lonely / lonesome  
+lonely hearts ad  
+Are you lonesome tonight? Do you miss me tonight? Are you sorry we drifted apart?  
+  
+### Just then, the gaoler appeared with the precious letter (being) in his hands. He entered the cell and presented the letter to the aristocrat.  
+  
+present sth. to sb.  
+present sb. with sth.  
+  
+When Dickie was given the watch, he presented the assistant with the cloth bag.  
+  
+### But the copy he gave him had not been written out in full as usual.  
+  
+as usual  
+as ever  
+as always  
+like always  
+Sam was in a bad mood as usual.  
+  
+### It was simply a blank sheet of paper.  
+### The gaoler looked on eagerly, (being) anxious to see if his fellow actor had at last learnt his lines.  
+  
+look on = stand by 旁观  
+Only one man tried to help us, the rest just looked on / stood by in silence.  
+  
+onlooker  
+bystander  
+  
+look on ... as ...  
+We look on her as a daughter.  
+  
+stand by sb.  
+He stood by her through the difficult times.  
+  
+Ashamed of having acted so rashly, Dimitri apologized to Aleko for having accused him.  
+  
+be anxious / eager / impatient / itching / desperate / dying to do ...  
+  
+can't wait to do ...  
+  
+Alf did this over two years and his fellow dustmen kept his secret.  
+fellow students  
+  
+learn / know sth. by heart = learn sth.  
+  
+### The noble stared at the blank sheet of paper for a few second. Then squinting his eyes, he said: 'The light is dim. Read the letter to me.'  
+  
+read sth. to sb.  
+read sb. sth.  
+Read me the letter.  
+  
+### And he promptly handed the sheet of paper to the gaoler. Finding that he could not remember a word of the letter either, the gaoler replied: 'The light is indeed dim, sire. I must get my glasses.' With this, he hurried off the stage.  
+  
+with the coming of spring  
+with the approach of Christmas  
+with the outbreak of war  
+with the progress of science  
+  
+Hower, as the evidence began to accumulate, experts from the zoo felt obliged to investigate, ...  
+  
+### Much to the aristocrat's amusement, the gaoler returned a few minutes later with a pair of glasses and the usual copy of the letter which he proceeded to read to the prisoner.  
+  
+much to one's ...  
+to one's great ...  
+to one's amusement  
+to one's surprise  
+to one's dismay  
+to one's delight  
+to one's sorrow  
+the one's excitement  
+  
+He violently beat the boy and the boy later died from his injuries.  
+  
+He voilently beat the boy who later died from his injuries.  
