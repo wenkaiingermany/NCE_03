@@ -89,3 +89,49 @@ win sympathy
 out of sympathy  
   
 Out of sympathy, I gave the beggar some change.  
+  
+a skeleton in the cupboard / closet  
+a family skeleton  
+  
+wash one's dirty linen  
+air one's dirty laundry  
+  
+The divorce has meant washing their dirty linen in court.  
+  
+### We often read in novels how a seemingly respectable person or family has some terrible secrete which has been concealed from strangers for years.  
+  
+Some person at the door is asking to see you.  
+  
+... which has been hidden from strangers for years.  
+  
+We often read in newspapers how a seemingly respectable personality was charged with tax evasion which had been concealed from the public for years.  
+  
+### The English language possesses a vivid saying to describe this sort of situation.  
+  
+saying: proverb / adage 谚语，格言  
+  
+The Chinese language possesses a vivid saying 'God favors the diligent'.  
+As an old Chinese saying goes, 'God favors the diligent'.  
+  
+### The terrible secret is called 'a skeleton in the cupboard'. At some dramatic moment in the story, the terrible secret becomes known and a reputation is ruined.  
+  
+one's reputation is ruined  
+The seemingly respectable official embezzled enormous government funds. Now the secret becomes known and his reputation is ruined.  
+  
+### The reader's hair stands on end when he reads in the final pages of the novel that the heroine, a dear old lady who had always been so kind to everybody, had, in her youth, poinsoned every one of her five husbands.  
+  
+make one's hair stand on end 令某人毛骨悚然  
+Wait until I tell you the about the murder -- it'll make your hair stand on end.  
+make one's blood run cold  
+frighten / scare the life out of sb.  
+frighten / scare the hell out of sb. (表达更粗俗)  
+  
+in one's youth (16,7 - 22,23)  
+in one's childhood  
+in one's early years  
+in one's adolescence / middle age / old age  
+  
+everyone = every one单独使用  
+every one of 与of连写必须用every one  
+  
+My hair stood on end when I watched in the final episode of the TV drama that the hero, a respectable lawer who had been so kind to everybody, turned out to be a savage murderer.  
