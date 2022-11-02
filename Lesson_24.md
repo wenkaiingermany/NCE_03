@@ -135,3 +135,94 @@ everyone = every one单独使用
 every one of 与of连写必须用every one  
   
 My hair stood on end when I watched in the final episode of the TV drama that the hero, a respectable lawer who had been so kind to everybody, turned out to be a savage murderer.  
+  
+### It is all very well for such things to occur in fiction, but in real life it is barely credible.  
+  
+It is all very well for ... to ..., but ... it is barely ...  
+It is all very well for you to wear pajamas in your own home, but in public it is barely respectable.  
+  
+### To varying degrees, we all have secrets which we do not want even our closest friends to learn, but few of us have skeletons in the cupboard.  
+  
+to varying degrees  
+  
+Racism still exists to varying degrees.  
+The water of rivers, lakes and resercoirs was universally polluted to varying degrees.  
+  
+closest friend  
+intimate friend  
+bosom friend  
+fair-weather friend  
+  
+pen pal / friend  
+internet pal / friend  
+  
+### The only person I know who has a skeleton in the cupboard is George Carlton, and he is very proud of the fact.  
+  
+You're the only person I've ever met who could do it.  
+He's the best man I can find who can mend it within an hour.  
+  
+be proud of ...  
+take pride in ...  
+pride oneself on ...  
+  
+Much as we may pride ourselves on our good taste, we are no longer free to choose the things we want, for advertising exerts a subtle influence on us.  
+  
+### George studied medicine in his youth. Instead of becoming a doctor, however, he became a successful writer of detective stories.  
+  
+Instead of becoming a doctor, however, Lu Xun became China's foremost modern writer of satirical essays.  
+  
+### I once spent an uncomfortable weekend which I shall never forget at his house. 
+  
+transferred epithet 移就  
+a sad letter  
+a lonely night  
+  
+### George showed me to the guestroom which, he said, was rarely used.  
+  
+show = lead  
+Aleko denied taking it and led Dimitri into his back yard.  
+  
+### He told me to unpack my things and then come down to dinner.  
+unpack my things / belongings  
+unpack my suitcase  
+  
+### After I had stacked my shirts and underclothes in two empty drawers, I decided to hand one of the two suits I had brought with me in the cupboard. I opened the cupboard door and then stood in front of it petrified.  
+形容词作主语补足语  
+She came home sick.  
+Only the good die young.  
+Inevitably you arrive at your destination almost exhaused.  
+  
+### A skeleton was dangling before my eyes.  
+### The sudden movement of the door made it sway slightly and it gave me the impression that it was about to leap out at me.  
+give sb. the impression that ...  
+have / get the impression that ...  
+be under the impression that ...  
+  
+Though the crew were at first under the impression that the lost ship had been found, the contents of the chest proved them wrong.  
+  
+... and I had / got the impression that it was about to leap out ...  
+... and I was under the impression that it was about to leap out ...  
+  
+be about to do ... = be on the point of doing ...  
+It was on the point of leaping out at me.  
+  
+leap  
+jump  
+bounce  
+That's one small step of a man, one giant leap for mankind.  
+  
+by leaps and bounds: very quickly  
+  
+Your little nephew is growing by leaps and bounds.  
+Yes. He must be at least three feet tall already.  
+  
+### Dropping my suit, I dashed downstairs to tell George. This was worse than 'a terrible secret'; this was a real skeleton! But George was unsympathetic.  
+But George didn't sympathize with me.  
+But George had / showed no sympathy for me.  
+  
+### 'Oh, that,' he said with a smile as if he were talking about an old friend.  
+Don't act as if you were the only pebble on the beach.  
+  
+### 'That's Sebastian. You forget that I was a medical student once upon a time.'  
+medical staff  
+medical ethics
