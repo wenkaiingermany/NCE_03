@@ -146,11 +146,9 @@ It is all very well for you to wear pajamas in your own home, but in public it i
 to varying degrees  
   
 Racism still exists to varying degrees.  
-The water of rivers, lakes and resercoirs was universally polluted to varying degrees.  
+The water of rivers, lakes and reservoirs was universally polluted to varying degrees.  
   
-closest friend  
-intimate friend  
-bosom friend  
+closest friend = intimate friend = bosom friend  
 fair-weather friend  
   
 pen pal / friend  
