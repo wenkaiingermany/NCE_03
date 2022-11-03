@@ -184,7 +184,7 @@ Aleko denied taking it and led Dimitri into his back yard.
 unpack my things / belongings  
 unpack my suitcase  
   
-### After I had stacked my shirts and underclothes in two empty drawers, I decided to hand one of the two suits I had brought with me in the cupboard. I opened the cupboard door and then stood in front of it petrified.  
+### After I had stacked my shirts and underclothes in two empty drawers, I decided to hang one of the two suits I had brought with me in the cupboard. I opened the cupboard door and then stood in front of it petrified.  
 形容词作主语补足语  
 She came home sick.  
 Only the good die young.  
