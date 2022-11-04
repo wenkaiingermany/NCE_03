@@ -116,3 +116,93 @@ Our meetings was delayed / postponed for ten minutes.
   
 bring / put sth. forward to ...  
 The meeting had been brought / put forward to Thursday.  
+  
+### One of the most famous sailing ships of the 19th century, the Cutty Sark, can still be seen at Greenwich.  
+The loss of the Titanic  
+the Cutty Sark  
+the Vasa  
+作同位语时the可以省略  
+The great ship, Titanic, sailed for New York from Southampton on April 10th, 1912.  
+The small ship, Elkor, which had been searching the Barents Sea for weeks, was on its way home.  
+  
+GMT: Greenwich Mean Time  
+  
+### She stands on dry land and is visited by thousands of people each year.  
+She was carrying 1,316 passengers and crew of 891.  
+What's wrong with my car? She won't start.  
+China has done what she promised to do.  
+  
+### She serves as an impressive reminder of the great ships of the past.  
+serve as 
+This room can serve as a study.  
+Her death should serve as a warning to other young people.  
+Not all sounds made by animals serve as language, ...  
+  
+act as ...  
+function as ...  
+A five-year sentence should act as a deterrent to others.  
+Some English adverbs function as adjectives.  
+
+reminder (souvenir memo ...)  
+Alison's story is a reminder of how vulnerable women can be in what is still essentially a man's world.  
+  
+serve / act as a reminder = be a reminder  
+The drop in stock prices serves / acts as a reminder that investing is a form of gambling.  
+  
+The accident served / acted as a timely reminder of just how dangerous speeding can be.  
+  
+### Before they were replaced by steamships, sailing vessels like the Cutty Sark were used to carry tea from China and wool from Australia.  
+  
+be replaced by ...  
+The old farmhouse the family lived in was to be replaced by a new $500,000 home.  
+  
+sailing ships  
+sailing vessels  
+ships with sails  
+  
+be used to do  
+be used to doing 习惯  
+used to do 曾经，过去常常  
+  
+### The Cutty Sark was one of the fastest sailing ships that has ever been built.  
+At that time, however, she was not only the largest ship that had ever been built, but was regarded as unsinkable, for she had 16 watertight compartments.  
+  
+one of + 复数名词 + who / which / that + 谓语动词(单复数均可)  
+  
+One of the things that fascinates us most about cats is the popular belief that they have nine lives.  
+  
+Jasper White is one of those rare people who believes in ancient myths.  
+  
+### The only other ship to match her was the Thermopylae.  
+match v. 与...相匹敌  
+No one can match the unknown archer.  
+The two teams are well matched.  
+You can't match him in knowledge of wild plants.  
+But nothing can match them for speed and confort.  
+  
+### Both these ships set out from Shanghai on June 18th, 1872 on an exciting race to England.  
+set out / off  
+start out / off  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Altantic, a huge iceberg was suddenly spotted by a look-out.  
+After making a short test flight at 4.15 a.m., Bleriot set off half an hour later.  
+  
+set out to do 开始某个任务  
+The journalist immediately set out to obtain these important facts, but he took a long time to sent them.  
+Dimitri at once set out to find the thief.  
+  
+on a fishing trip  
+on a walking tour  
+
+We started out on a 20-mile walk.  
+She had come on a visit to England.  
+After a day or so we will go on an excursion.  
+
+### This race, which went on for exactly four months, was the last of its kind.  
+go on 继续，持续  
+Peace negotiations are still going on.  
+His speech went on for so long that people began to fall asleep.  
+  
+### It marked the end of the great tradition of ships with sails and the beginning of a new era.  
+The race was a landmark in the history of shipping.  
+  
+The foundation of the People's Republic of China marked the end of the new-democratic revolution and the beginning of a new era of the socialist revolution and construction.  
