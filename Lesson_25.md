@@ -206,3 +206,68 @@ His speech went on for so long that people began to fall asleep.
 The race was a landmark in the history of shipping.  
   
 The foundation of the People's Republic of China marked the end of the new-democratic revolution and the beginning of a new era of the socialist revolution and construction.  
+  
+### The first of the two ships to reach Java after the race had begun was the Thermopylae, but on the Indian Ocean, the Cutty Sark took the lead.  
+  
+... that reached Java ...  
+the first, the second, the next, the last, the best, the only ... 后常跟不定式作定语  
+  
+When he landed near Dover, the first person to great him was a local policeman.    
+You are the second to ask me that question.    
+The next man to approach me was selling expensive pens and watches.  
+The last creature to compete with man was the mosquito.  
+The pie committee decided that the best way to transport the dish would be by canal, so they insured it for the trip.  
+The only other ship to match her was the Thermopylae.  
+  
+... after the beginning of the race ...  
+  
+the lead 领先的地位  
+take (over) the lead (from ...)  
+lose the lead (to ...)  
+Because of this, the Cutty Sark lost her lead.  
+
+### It seemed certain that she would be the first ship home, but during the race she had a lot of bad luck.  
+  
+It looked / seemed / appeared certain that ..., but ...  
+It looked / seemed / appeared as if / as though ..., but ...  
+  
+It seemed certain that there would be an exciting race across the Channel, but Latham failed to get up early enough.  
+  
+### In August, she was struck by a very heavy storm during which her rudder was torn away.  
+strike (struck, struck)  
+The big clock which used to strike the hours day and night was damaged many years ago and has been silent ever since.  
+One of the thieves was struck by a heavy statue, but he was too busy helping himself to diamonds to notice any pain.  
+The family was struck by yet another tragedy.  
+  
+be caught in ...  
+We were caught in a heavy storm / a traffic jam.  
+  
+heavy / severe / violent / devastating / disastrous storm  
+  
+A week before, he had completed a successful overland flight during which he covered twentysix miles.  
+  
+As long ago as the 1930's, the Red Army had completed the successful Long March during which the covered 25,000 li.  
+  
+tear sth. away / off / up ... (tear, tore, torn)  
+The flag was torn away from the pole by the strong wind.  
+High winds nearly tore the roof off.  
+The storm had torn the old tree up by the roots.  
+
+### The Cutty Sark rolled from side to side and it became impossible to steer her.  
+  
+roll heavily / violently from side to side / to and fro  
+The ship was rolling heavily to and fro.  
+The plane rolled violently from side to side in the storm.  
+His few material possessions make it possible for him to move from place to place with ease.  
+  
+read sth. from cover to cover  
+sell sth. from door to door  
+very from person to person  
+improve from day to day  
+  
+### A temporary rudder was made on board from spare planks and it was fitted with great difficulty.  
+  
+a spare key / battery / tire ...  
+  
+The Officer went through the case with great care.  
+  
