@@ -271,3 +271,74 @@ a spare key / battery / tire ...
   
 The Officer went through the case with great care.  
   
+### This greatly reduced the speed of the ship, for there was a danger that if she travelled too quickly, this rudder would be torn away as well.  
+  
+there is / was a danger that ...  
+There was a danger that the wave would rebound off the other side of the bank and send the dish plunging into the water again.  
+There is a danger that the policical disorder of the past will return.  
+There is a danger that museums will attempt to entertain rather than educate.  
+There was a danger that is Mrs. Ramsay went to the police, she would never seen Rastus again.  
+
+### Because of it, the Cutty Sark lost her lead.  
+  
+### After crossing the equator, the captain called in at a port to have a new rudder fitted, but by now the Thermopylae was over 500 miles ahead (of the Cutty Sark / her).  
+  
+equator  
+pole the North / South Pole 
+latitude  
+longitude  
+axis  
+  
+call in at somewhere  
+call in on sb. 顺路去
+  
+Will you call in at the supermarket for some eggs and milk?  
+Could you call in on Mum on your way home?  
+  
+I had expected to be near my objective by now, but everything still seemed alien to me.  
+  
+### Though the new rudder was fitted at tremendous speed, it was impossible for the Cutty Sark to win.  
+  
+1. speed 做不可数名词时，与at with搭配均可  
+at / with great speed  
+2. speed 做可数名词时， 只与at搭配  
+at a speed of 60 mph  
+  
+tremendous  
+In his day, Mendoza enjoyed tremendous popularity.  
+  
+at (a) fantastic speed  
+The raid was all over in three minutes, for the men scrambled back into the car and it moved off at a fantastic speed.  
+
+### She arrived in England a week after the Thermopylae.   
+Four days after setting out, ...  
+Three days after Rastus' disappearance, ...  
+A man who had broken his right leg was taken to hospital a few weeks before Christmas.  
+
+### Even this was remarkable, considering that she had had so many delays.  
+
+considering prep. & conj.  
+Considering the amount she paid, he was dear in more ways than one!  
+
+### There is no doubt (about) that if she had not lost her rudder she would have won the race easily. 宾语从句  
+there is no doubt that one day a cure will be found.  
+  
+undoubtedly   
+She was undoubtedly the best candidate. 
+Undoubtedly, public interest in folk music had declined.  
+  
+needless to say, ...  
+Needless to say, the man's name was Hans Bussman and he really was Franz's long-lost brother.  
+  
+it goes without saying that  
+It goes without saying that home is the warmest place in the world.  
+  
+与过去事实相反的if型虚拟语气  
+If + S. + had done, S. + would / should / could / might + have done  
+  
+If they had only had one more child, the fact would have passed unnoticed.  
+If the Houses of Parliament hand not been burned down 1834, the great clock would never have been erected.  
+
+... she would have beaten / defeated the Thermopylae easily.  
+  
+There is no doubt that if the Titanic had not been hit by the iceberg, she would have reached her destination intact.
