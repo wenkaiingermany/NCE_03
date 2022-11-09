@@ -43,6 +43,64 @@ The cartoon character Mickey Mouse was devised by Walt Disney in 1928.
 M: What has they decided to call the stadium?  
 W: No one has come up with a good name.  
   
+wanted: 诚聘，求购  
+help wanted section  
+  
+W: Since when do you read the Sunday Times?  
+M: Since I discovered its big help-wanted section.  
+  
+The fugitive is wanted by the police.  
+  
+### No one can avoid being influenced by advertisements.  
+avoid v. 避免  
+avoid doing  
+No one can avoid being influenced by society.  
+No one can avoid being tempted by money.  
+No one can avoid making mistakes.  
+  
+Everyone is influenced by advertisements.  
+  
+Everyone admits that ...  
+No one can deny that ...  
+  
+Everyone is attracted by ...  
+No one can resist ...  
+  
+### Much as we may pride ourselves on our good taste, we are no longer free to choose the things we want, for advertising exerts a subtle influence on us.  
+  
+pride oneself on ...  
+take pride in ...  
+be proud of ...  
+  
+Although we may much pride ourselves on our good taste, ...  
+Much as we may pride ourselves on our good taste, ...  
+  
+Although I much admire Newton as a scientist, I don't like him as a man.  
+Much as I admire ...  
+  
+Although we may be proud of our good taste, ...  
+Proud as we may be of our good taste, ...  
+  
+Although she is beautiful, I still don't like her.  
+Beautiful as she is, I still don't like her.  
+  
+Although he tries, he never seems able to do the work beautifully.  
+Try as he does, ...  
+  
+Although he is a child, he can make a living.  
+Child as he is, ...  
+  
+be free to do ...  
+You are free to choose the things you want.  
+  
+freely 
+You can choose the things you want freely.  
+  
+be at liberty to do  
+You are at liberty to choose the things you want.  
+  
+
+
 ### During a radio programme, a company of biscuit manufacturers- once asked listeners to bake biscuits and send them to their factory.  
   
 bake: 用烤箱烤制面食  
