@@ -99,7 +99,61 @@ You can choose the things you want freely.
 be at liberty to do  
 You are at liberty to choose the things you want.  
   
+### In their efforts to persuade us to buy this or that product, advertisers have made a close study of human nature and have classified all our little weaknesses.  
+  
+in sth. / doing  
+In trying to persuade us to buy ...  
+In seeking independence, they do not sacrifice their human dignity.  
+  
+persuade sb. to do / into doing  
+talk sb. into doing  
+We talked Father into buying the car.  
 
+get sb. to do    
+The rough road across the plain soon became so bad that we tried to get Bruce to drive back to the village we had come from.  
+  
+persuade sb. not to do / out of doing  
+talk sb. out of doing  
+get sb. not to do  
+dissuade sb. from doing  
+  
+I persuaded him not to commit / out of committing suicide.  
+I talked him out of committing suicide.  
+I got him not to commit suicide.  
+I dissuaded him from committing suicide.  
+  
+this or that product  
+one product or another  
+some product or other  
+  
+study ...  
+make a study of ...  
+make a close study of ...  
+Recently the New York Animal Medical Center made a study of 132 cats over a period of five months.  
+  
+make an interesting discovery of ...  
+Some time ago, an interesting discovery was made by archaeologists on the Aegean island of Kea.  
+  
+describe  
+make a vivid description of ...  
+  
+investigate  
+make a thorough investigation of ...  
+
+summarize  
+make a comprehensive summary of ...  
+
+analyze  
+make a detailed analysis of ...  
+
+weakness  
+1. 懦弱，软弱[U]  
+So let us begin anew--remembering on both sides that civility is not a sign of weakness, and sincerity is always subject to proof. Let us never negotiate out of fear, but let us never fear to negotiate.  
+2. 弱点，缺点[C]  
+strength 有点，长处[C]  
+strengths and weaknesses  
+  
+For we know that our patch work heritage is a strength, not a weakness. We are a nation of Christians and Muslims, Jews and Hindus, and nonbelievers.  
 
 ### During a radio programme, a company of biscuit manufacturers- once asked listeners to bake biscuits and send them to their factory.  
   
