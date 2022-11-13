@@ -184,3 +184,113 @@ topic sentence
 supporting sentences 
 concluding sentence  
   
+### Tramps seem to be the only exception to this general rule.  
+Tramps appear to be the only exception to this general rule.  
+  
+It seems that tramps are the only exception to this general rule.  
+It appears that tramps are the only exception to this general rule.  
+  
+exception to sth.  
+There are some exceptions to every grammatical rule.  
+  
+### Beggars alomost sell themselves as human beings to arouse the pity of passers-by.  
+  
+Beggars sell their buman dignity for the pity of passers-by.  
+The moment they reach out their hands they are beggars spiritually.  
+  
+### But real tramps are not beggars. They have nothing to sell and require nothing from other.  
+  
+### In seeking independence, they do not sacrifice their human dignity.  
+in doing = in the process of doing  
+In trying to solve one problem, I created another.  
+  
+on / upon doing 刚一 ... 就 ...  
+On being observed, it immediately ran away.  
+Upon arriving at the university, I went straight to the dormitory.  
+  
+seek refuge / asylum / compensation / comfort / reelection  
+Virgo woman seeks Scorpio man.  
+  
+### A tramp may ask you for money, but he will never ask you to feel sorry for him.  
+  
+feel sorry for  
+have / feel sympathy for ...  
+sympathize with ...  
+take pity on ...  
+
+### He has deliberately chosen to lead the life he leads and is fully aware of the consequences.  
+We only help those who really need help.  
+God helps those who help themselves.  
+  
+be aware of ...  
+be conscious of ...  
+be unaware of ...  
+be unconscious of ...  
+be ignorant of ...  
+  
+### He may never be sure where the next meal is coming from, but he is free from the thousands of anxieties which afflict other people.  
+  
+be free from ... 没有不愉快的东西  
+He has been free from care since he retired.  
+The composition is free from errors.  
+Organic 'produce is free from harmful chemicals.  
+  
+free ... from ...  
+... but he frees himself from the thousands of anxieties...  
+He decicated his life to freeing the world from famine and disease.  
+  
+which afflict / distress / torture / rack / torment other people.  
+which other people suffer (from).  
+  
+### His few material possessions make it possible for him to move from place to place with ease.  
+make it possible for sb. to do = enable sb. to do.  
+  
+They devise hundreds of competitions which will enable us to win huge sums of money. Radio and television have made it possible for advertisers to capture the attention of millions of people in this way.  
+  
+from place to place  
+here and there  
+hither and thither  
+
+The Cutty Sark rolled from side to side and it became impossible to steer her.  
+
+read sth. from cover to cover  
+sell sth. from door to door  
+vary from person to person  
+improve from day to day  
+  
+from dawn to dusk  
+from head to foot  
+from top to bottom  
+from start to finish  
+from cradle to grave  
+  
+A rolling stone gathers no moss.  
+  
+### By having to sleep in the open, he gets far closer to the world of nature than most of us ever do.  
+  
+in the open (air): outdoors  
+He is taller than I am.  
+He is taller than I.  
+He is taller than me.  
+  
+### He may hunt, beg, or steal occasioncally to keep himself alive; he may even, in times of real need, do a little work; but he will never sacrifice his freedom.  
+  
+occasionally  
+once in a while  
+from time to time  
+  
+in times of happiness / grief / rage / crisis / boredom / war / peace ...  
+  
+### We often speak of tramps with contempt and put them in the same class as beggars, but how many of us can honestly say that we have not felt a little envious of their simple way of life and their freedom from care?  
+  
+with contempt = contemptuously  
+  
+put ... in the same class as ...  
+classify ... as ...  
+  
+rhetorical question 修辞疑问句  
+  
+O, wind, if winter comes, can spring be far behind? -- Shelley  
+Who among us has not dreamed of that?  
+What is the use of our studying grammer if we can't put the grammatical rules into proctice?  
+Could any spectacle, for instance, be more grimly whimsical than that of gunners using science to shatter men's bodies while, close at hand, surgeons use it to restore them?  
