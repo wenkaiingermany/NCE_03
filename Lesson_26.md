@@ -154,7 +154,57 @@ strength 有点，长处[C]
 strengths and weaknesses  
   
 For we know that our patch work heritage is a strength, not a weakness. We are a nation of Christians and Muslims, Jews and Hindus, and nonbelievers.  
+  
+### Advertisers discovered years ago that all of us love to get something for nothing.  
+  
+for nothing / for free / free of charge adv. 免费......  
+  
+Guests can park for nothing / for free / free of charge.  
+  
+no charge for ...  
+There is no charge for parking.  
+  
+be on the house 店主请客  
+How much do I owe you?  
+Well, that'll be eighteen dollars and seventy cents. No charge for the cleanup. It's on the house.  
+  
+### An advertisement which begins with the magic word FREE can rarely go wrong.  
+  
+begin with ...  
+Let's go into the kitchen, and maybe you can help me set the table.  
+Sounds good to me. What are we having?  
+I prepared lamb chops, mashed potatoes, and a tossed green salad to beging with.  
+Grandpa, you are a terrific guy!  
+  
+end with ...  
+The rally ended with the singing of national anthem.  
+  
+go wrong 出错  
+Something's gone wrong with my computer.  
+We have all experienced days when everything goes wrong.  
+  
+### These days, advertisers not only offer free samples, but free cars, free houses, and free trips round the world as well.  
+  
+round / around the world  
+throughout the world  
+all over the world  
+the world over  
+  
+Michael Jackson was popular ~.  
+  
+### They devise hundreds of competitions which will enable us to win huge sums of money.  
+  
+enable sb. to do ...  
+make it possible for sb. to do ...  
 
+### Radio and television have made it possible for advertisers to capture the attention of millions of people in this way.  
+  
+capture / attract / draw / catch / arrest / command / get (one's) attention / the attention of ...  
+  
+This attracted the attention of Richard Humphries who was then the mose eminent boxer in England.  
+  
+True eccentrics never deliberately set out to draw attention to themselves.  
+  
 ### During a radio programme, a company of biscuit manufacturers- once asked listeners to bake biscuits and send them to their factory.  
   
 bake: 用烤箱烤制面食  
