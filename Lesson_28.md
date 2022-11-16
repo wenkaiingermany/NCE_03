@@ -16,7 +16,7 @@ tempt v. 吸引，引诱
 tempt sb. to do sth.  
 tempt sb. into doing sth.  
 The serpent tempted Eve to pick the forbidden fruit.  
-The serpent tempted Eve into picking the forddien fruit.  
+The serpent tempted Eve into picking the forbidden fruit.  
   
 lure / seduce / entice sb. into doing sth.  
   
@@ -40,7 +40,7 @@ We embarked on the ship for Shanghai.
   
 board  
 The couple boarded the train for New York.  
-Flight NO. 714 is now boarding at Gate 8.  
+Flight No. 714 is now boarding at Gate 8.  
   
 assail v. 纠缠  
 be assailed by / with ...  
@@ -51,7 +51,7 @@ pester
 harry  
 harass  
 
-From the moment he arrived there, he kept on pesteing his doctor to tell him when he would be able to go home.  
+From the moment he arrived there, he kept on pestering his doctor to tell him when he would be able to go home.  
 
 sexual harassment 性骚扰  
 
@@ -61,7 +61,7 @@ inscribe v. 刻字，题写
 He inscribed his name in the stone.  
 He inscribed his name in the book.  
 
-desribe   描写
+desribe   描写  
 prescribe 开药方  
 proscribe 禁止  
 subscribe 订阅，订购  
