@@ -74,3 +74,68 @@ That's highway robbery / daylight robbery.
 The car costs a fortune.  
 The car costs me an arm and a leg.  
   
+dear: expensive; costly; pricey; steep  
+  
+Italian ex-mayor murdered  
+  
+### Small boats (which were) loaded with wares sped to the great liner as she was entering the harbour.  
+  
+be loaded with ...  
+They quickly loaed a small rubber dinghy with food, matched, and cans of beer and rowed for a few miles across the Caribbean until they arrived at a tiny coral island.  
+  
+be covered with ...  
+be filled with ...  
+... it is filled with what looks like a thick, greyish substance.  
+All at once, I noticed that my wife seemed to be filled with alarm.  
+  
+be packed / crammed with ...  
+It has been estimated that if the bridge were packed with cars, it would still only be carrying a third of its total capacity.  
+The streets were packed / crammed with Christmas shoppers.  
+  
+be stuffed with ...  
+a pillow stuffed with feathers  
+duck stuffed with 'eight treasures'  
+stuffed birds  
+  
+I'm stuffed = I'm full  
+  
+He was fined for speeding.  
+We sped down the ski slopes.  
+
+The tragic sinking of this great liner will always be remembered, for she went down on her first voyage with heavy loss of life.  
+  
+enter the harbor  
+depart from the harbor  
+  
+pull / draw in the station  
+pull / draw out of the station  
+  
+### Before she had anchored, the men from the boats had climbed on board and the decks were soon covered with colourfull rugs from Persia, silks from India, copper coffee pots, and beautiful handmade silverware.  
+  
+on board = aboard adv. & prep.  
+one of the most colorful figures  
+  
+rug  carpet  mat  doormat  bathmat  blanket  
+  
+copper  bronze  brass  
+the Bronze Age  
+a brass band  
+potbelly  coffee pot  teapot  flowerpot  kettle  
+the pot calling the kettle black  
+  
+pan  frying pan  
+out of the frying pan into the fire  
+  
+### It was difficult not to be tempted.  
+It was difficult to avoid being tempted.  
+No one can avoid being influenced by advertisements.  
+It was difficult to resist temptation.  
+  
+### Many fo the tourists on board had begun bargaining with the tradesmen, but I decided not to buy anything until I had disembarked.  
+  
+I shaved before I went to the party.  
+..., but I decided to disembark before I bought anything.  
+                                before buying anything.  
+  
+
+      
