@@ -210,3 +210,100 @@ I took over half an hour to get rid of him.
 The jounalist immediately set out to obtain these important facts, but he took a long time to send them.  
 
 I spend over half an hour (in) getting rid of him.  
+  
+get rid of sb.  
+dispose of sb.  
+  
+There is no quicker method of disposing of patients than by giving them what they are asking for, ...  
+  
+### The next man to approach me was selling expensive pens and watches.  
+the first, the second, the next, the last, the best, the only... 后常跟不定式作定语  
+  
+When he landed near Dover, the first person to greet him was a local policeman.  
+  
+The only other ship to match her was the Thermopylae.  
+  
+The first of the two ships to reach Java after the race had begun was the Thermopylae, but on the Indian Ocean, the Cutty Sark took the lead.  
+  
+The last creature to complete with man was the mosquito.  
+  
+### I examined one of the pens closely.  
+closely = carefully  
+... advertisers have made a close study of human nature...  
+  
+### It certainly looked genuine. At the base of the gold cap, the words 'made in the U.S.A.' had been neatly inscribed.  
+  
+at the base of ...  
+on the basis of ...  
+  
+Decisions were often made on the basis of false information.  
+  
+gold  
+gold ring / medal  
+  
+golden  
+golden sunshine / hair  
+  
+Speech is silver, but silence is golden.  
+  
+His handwriting is neat.  
+He has a teacher's handwriting.  
+  
+His handwriting is illegible.  
+He has a doctor's handwriting.  
+  
+inscribe  
+engrave  
+Historians have long been puzzled by dots, lines and symbols which have been engraved on walls, bones, and the ivory tusks of mammoths.  
+  
+### The man said that the pen was worth $50, but as a special favour, he would let me have it for $30. I shook my head and held up five fingers indicating that I was willing to pay $5.  
+  
+I shook my head ...  
+I disagreed ...  
+I said no to him ...  
+  
+hold up = extend 伸出  
+indicate 表示，表明  
+Recent scientific evidence seems to indicate that this assumption is incorrect.  
+  
+### Gesticulating wildly, the man acted as if he found my offer outrageous, but he eventually reduced the price to $10.  
+  
+outrageous  
+absurd  
+pre'posterous  
+  
+eventually = at last = finally  
+in the end  
+  
+### Shrugging my shoulders, I began to walk away when, a moment later, he ran after me and thrust the pen into my hands.  
+  
+shrug one's shoudlers  
+with a shrug  
+  
+I will be on vacation till the end of the month when I return to shanghai.  
+  
+run after = chase  
+Just as it was leaving, Mr. Taylor rushed out and ran after it throwing ashtrays and vases, ...  
+  
+### Though he kept throwing up his arms is despair, he readily accepted the $5 I gave him.  
+  
+readily = willingly  
+There are times when we would willingly give everything we possess to save our lives, ...  
+  
+### I felt especially pleased with my wounderful bargain. -- until I got back to the ship.  
+  
+### No matter how hard I tried, it was impossible to fill this beautiful pen with ink and to this day it has never written a single word!  
+  
+However hard I tried, ...  
+  
+Judges, however wise or eminent, are human and can make mistakes.  
+Imagine their dismay when they found a beautifully-cooked wallet and notes turned to ash.  
+  
+to this day = so far  
+I spent the whole day in my room, but I did not write a single card!  
+  
+He earned enormous sums of money and was paid as much as $100 for a single apperance.  
+  
+They had a single aim, a solitary goal--the top!  
+  
+No matter how well I feed the her, it was impossible to persuade the beautiful hen to bread and to this day she has never laid a single egg!  
