@@ -96,3 +96,80 @@ make up for  弥补，补偿
 redeem  
 offset   
   
+### Whether we find a joke funny or not largely depends on where we have been brought up.  
+  
+表示 是否 时不能用if的几种情况  
+1. 主语从句位于句首时  
+2. 引导表语从句时  
+3. 引导同位语从句时  
+4. 作介词宾语时  
+5. 引导动词不定式时  
+6. 直接跟or not时  
+
+depend on ...  
+rest on ...  
+rely on ...  
+ride on ...  
+hinge on ...  
+lean on ...  
+be dependent on ...  
+be based on ...  
+be built on ...  
+be founded on ...  
+be decided by ...  
+be dictated by ...  
+be determinded by ...  
+  
+bring up sb. 抚养  
+He was brought up hy his step-mother.  
+raise sb. 
+foster / adopt sb.  
+adopted son  
+adoptive parents / foster-parents  
+  
+be brought up to do 从小就...  
+The sas truth is that most of us have been brought up to eat certain foods and we stick to them all our lives.  
+  
+We have been brought up to fear insect.  
+  
+### The sense of humour is mysteriously bound up with national characteristics.  
+the sense of pride / honor / accomplishment / responsibility / superiority / inferiority  
+  
+be bound up with = be closely connected with  
+Everyone's future is bound up with the destiny of the Chinese nation.  
+  
+be bound to do ...  
+On our road ahead, we are bound to meet with difficulties.  
+  
+be / feel bound to do ...  
+I felt bound to tell him the truth.  
+  
+be / feel obliged to do ...  
+However, as the evidence began to accumulate, experts from the Zoo felt obliged to investigate, for the descriptions given be people who claimed to have seen the puma were extraordinarily similar.  
+  
+bind sb. to do  
+The Kyoto Protocol binds each country to reduce the emission of greenhouse gases.  
+  
+### A Frenchman, for instance, might find it hard to laugh at a Russian joke.  
+a Frenchman  
+the French (adj.)  
+
+No matter where you live, you would find it difficult not to laugh at, say, Charlie Chaplin's early films.  
+
+### In the same way, a Russian might fail to see anything amusing in a joke which would make an Englishman laugh to tears.  
+
+in the same way  
+likewise  
+similarly  
+by the same token  
+  
+laugh to tears  
+laugh one's head off  
+clap one's hands off  
+be bored to tears / death  
+cry one's eyes out  
+  
+contrast 对比  
+A mother takes twenty years to make a man of her boy, and another woman makes a fool of him in twenty minutes.  
+  
+Men always want to be a woman's first love; women have a more subtle instinct: what they like is to be a man's last romance.  
