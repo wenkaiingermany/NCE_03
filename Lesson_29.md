@@ -173,3 +173,87 @@ contrast 对比
 A mother takes twenty years to make a man of her boy, and another woman makes a fool of him in twenty minutes.  
   
 Men always want to be a woman's first love; women have a more subtle instinct: what they like is to be a man's last romance.  
+  
+### Most funny stories are based on comic situations. In spite of national differences, certain funny situations have a universal appeal.  
+
+universal: international, global, world-wirde    
+appeal: attraction, charm, fascination  
+  
+appeal to sb.  
+The idea never appealed to me very much, ...  
+  
+acctract / charm / fascinate sb.  
+Cats never fail to fascinate human beings.  
+  
+appealing  
+attractive  
+charming  
+fascinating  
+  
+### No matter where you live, you would find it difficult not to laugh at, say, Charlie Chaplin's early films.  
+  
+Whoever wants to sign up for the course is welcome.  
+[X] No matter who wants to sign up for the course is welcome.  
+No matter who wants to sign up for the course, he is welcome.  
+
+Whatever project he works on is always successful.  
+No matter what project he works on, it is always successful.  
+  
+Why don't we have a break until, (let's) say, 10:45?  
+  
+### However, a new type of humour, which stems largely from the U.S., has recently come into fashion.  
+  
+stem from ...  
+originate in ...  
+have its roots in ...  
+  
+come into fashion  
+Miniskirts have come into fashion.  
+  
+be in fashion  
+be out of fashion  
+fashionable clothes / ideas / hairstyles  
+  
+come into use  
+Computers first came into use in the early 1950s.  
+  
+come into effect  
+The new seat-belt regulations came into effect last week.  
+  
+come into blossom  
+The trees are late coming into blossom this year.  
+  
+come into being  
+Up to now, historians have assumed that calendars came into being with the advent of agriculture, ...  
+  
+### Comedians base their jokes on tragic situations like violent death or serious accidents.  
+  
+Comedians build their jokes on tragic situations ...  
+Comedians found their jokes on tragic situations ...  
+  
+### Many people find this sort of joke distasteful / unpleasant / disgusting / repellent / revolting / repulsive.  
+This sort of joke repels / revolts / repulses / disgusts / sickens many people.  
+  
+Many people dislike / hate / despise / abhor / detest / loathe / abominate this sort of joke.  
+  
+### The following example of 'sick humour' will enable you to judge for yourself.  
+  
+the following example  
+the ensuing example  
+the under-mentioned example  
+the example below  
+
+the previous example  
+the preceding example  
+the above-mentioned example  
+the example above  
+  
+enable sb. to do  
+They devise hundreds of competitions which will enable us to win huge sums of money.  
+  
+allow / permit sb. to do  
+make it possible for sb. to do  
+Radio and television have made it possible for advertisers to capture the attention of millions of people in this was.  
+  
+do sth. for oneself  
+So great is our passion for doing thins for ourselves, that we are becoming increasingly less dependent on specialized labor.  
