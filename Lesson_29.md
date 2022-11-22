@@ -128,7 +128,7 @@ adopted son
 adoptive parents / foster-parents  
   
 be brought up to do 从小就...  
-The sas truth is that most of us have been brought up to eat certain foods and we stick to them all our lives.  
+The sad truth is that most of us have been brought up to eat certain foods and we stick to them all our lives.  
   
 We have been brought up to fear insect.  
   
@@ -253,7 +253,7 @@ They devise hundreds of competitions which will enable us to win huge sums of mo
   
 allow / permit sb. to do  
 make it possible for sb. to do  
-Radio and television have made it possible for advertisers to capture the attention of millions of people in this was.  
+Radio and television have made it possible for advertisers to capture the attention of millions of people in this way.  
   
 do sth. for oneself  
-So great is our passion for doing thins for ourselves, that we are becoming increasingly less dependent on specialized labor.  
+So great is our passion for doing things for ourselves, that we are becoming increasingly less dependent on specialized labor.  
