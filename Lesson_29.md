@@ -257,3 +257,97 @@ Radio and television have made it possible for advertisers to capture the attent
   
 do sth. for oneself  
 So great is our passion for doing things for ourselves, that we are becoming increasingly less dependent on specialized labor.  
+  
+### A man who had broken his right leg was taken to hospital a few weeks before Christmas.  
+A man whose right leg had been broken ...  
+  
+take sb. to hospital  
+send sb. to hospital  
+go to hospital  
+  
+be in hospital  
+be hospitalized  
+  
+leave hospital  
+  
+### From the moment he arrived there, he kept on pestering his doctor to tell him when he would be able to go home.  
+From the moment when  
+                at which  he arrived there...
+                that 
+                \  
+
+Since the moment he arrived there, he had kept on pestering ...  
+  
+keep (on) doing  
+Why do you keep (on) making the same mistakes?  
+How can I explain if you keep (on) interrupting me?  
+In the process, he enjoyed himself thoroughly and kept telling everybody how much he hated hospitals.  
+  
+### He dreaded having to spend Christmas in hospital.  
+  
+dread + n. / doing  
+She dreads getting old.  
+  
+dread to do 一做某事就害怕  
+I dread to think what will happen if I fail.  
+  
+### Though the doctor did his best, the patient's recovery was slow.  
+  
+do / try one's best / utmost to do  
+do everything / all one can to do  
+give one's all to do  
+spare no effort to do  
+go all out to do  
+go to great lengths to do  
+The man went to great lengths to prove that the diamonds were real.  
+  
+### On Christmas Day, the man still had his right leg in plaster.  
+... the man's right leg was still in plaster.  
+on Easter Day  
+at Christmas  
+at Easter  
+The only regular visitors to the monastery in winter are parties of skiers who go there at Christmas and Easter.  
+  
+### He spent a miserable day in bed thinking of all the fun he was missing.  
+  
+### The following day, however, the doctor consoled him by telling him that his chances of being able to leave hospital in time for new year celebrations were good.  
+  
+one's chances of doing ...  
+the chances that ... 
+   are good / high.  
+   are small / slight / remote.  
+  
+His chances of winning the game are remote.  
+The chances that he will win the game are remote.  
+  
+### The man took heart and, sure enough, on New Year's Eve he was able to hobble along to a party.  
+take heart = be encouraged  
+lost heart  
+lose one's heart to ... 爱上某人  
+  
+sure enough = as expected  
+  
+### To compensate for his unpleasant experiences in hospital the man drank a little more than was good for him.  
+  
+... than what was good for him.  
+It seems that man was making a real effort to understand the seasons 20,000 years earlier than has been supposed.  
+  
+The project requires more labor than has been put in because it is extremely difficult.  
+  
+We often advise him not to drink more wine than is good for his health.  
+  
+### In the process, he enjoyed himself thoroughly and kept telling everybody how much he hated hospital.  
+..., he had a good / great time ...  
+... kept telling everybody to what extent he hated hospitals.  
+  
+To what extent do you love her?  
+I'll die for her.  
+  
+### He was still mumbling something about hospital at the end of the party when he slipped on a piece of ice and broke his left leg.  
+  
+主句 (进行时 / be about to do) + when ... 这时 突然  
+  
+slip on a piece of ice  
+trip over a stone  
+a slip of the pen 笔误  
+a slip of the tongue  
