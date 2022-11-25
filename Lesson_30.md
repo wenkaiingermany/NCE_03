@@ -36,4 +36,120 @@ I suspected his honesty.
 suspect sb. of sth.  
 I suspected him of lying.  
 'suspect  su'spicion  suspicious  
-I'm suspecious of his motives.
+I'm suspecious of his motives.  
+  
+### For years, villagers believed that Endley Farm was haunted.  
+rumor has it that ...  
+it's rumored that ...  
+  
+Rumor has it that / It's rumored that she only married him for his money.  
+  
+word has it that ...  
+Word has it that John is going to keep a dog as a pet.  
+  
+legend has it that ...  
+Legend has it that Qu Yuan, a great poet of the Warring States perios, threw himself into the Mi Luo River when he heard his homeland had been invaded.  
+  
+haunt 鬼魂出没于某地  
+A headless man haunts the castle.  
+The castle is haunted.  
+He is haunted by the experience of failure.  
+I'm haunted by homesickness.  
+  
+### The farm was owned by two brothers, Joe and Bob Cox.  
+The farm was possessed by two brothers, ...  
+The farm was in the possession of two brothers, ...  
+The fram belonged to two brothers, ...  
+  
+### The employed a few farmbands, but no one was willing to work there long.  
+employ sb.  
+hire sb.  
+engage sb.  
+take on sb.  
+appoint sb.  任命  
+He has been appointed (as) chief executive officer of the company.  
+  
+fire sb.  
+dismiss sb.  
+sack sb. / give sb. the sack  
+lay off sb.  
+suspend sb. 停职  
+The two police officers have been suspended until an enquiry is carried out.  
+  
+be willing / ready / prepared to do  
+
+(for) long    
+Have you known him (for) long?  
+I haven't known him (for) long.  
+  
+(for) a long time  
+I have known him (for) a long time.  
+  
+### Every time a worker gave up his job, he told the same story.  
+  
+every time (when)  
+whenever  
+no matter when  
+  
+give up one's job  
+leave one's job  
+quit one's job  
+resign  
+  
+retire  
+  
+It's the same old story  
+It's the same old story: too much work and not enough time.  
+  
+It's a long story  
+to cut / make a long story short  
+  
+It's another / a different story  
+  
+### Farm labourers said that they always woke up to find that work had been done overnight.  
+  
+动词不定式作结果状语时(尤其在表示随后发生的动作时)多表示意料之外的不愉快的结果。此时常在动词不定式前加上only以进一步加强意料之外的语气。  
+  
+He got home to learn that his father was ill.  
+Jim turned round to see that Mary was weeping.  
+He got to the station only to be told the train had gone.  
+  
+### Hay had been cut and cowsheds had been cleaned. A farm worker, who stayed up all night, claimed to have seen a figure cutting corn in the moonlight.  
+  
+stay up / sit up  熬夜  
+He sat up all night, preparing for the exam.  
+  
+burn the midnight oil  
+a night owl  
+  
+wait up (for sb.)  
+I should go--Marie will be waiting up for me.  
+  
+toss and turn 辗转反侧  
+Last night I tossed and turned in bed, too exhausted to sleep.  
+I was overtired and couldn't sleep.  
+  
+not sleep a wink  
+not get a wink of sleep  
+I didn't sleep a wink last night with all that noise.  
+I didn't get a wink of sleep last night with all that noise.  
+  
+During the day, sleep comes in snatches.  
+... lulls you to sleep.  
+The dreak-like music lulls me to sleep.  
+  
+claim to have done  
+... for the descriptions given by people who claimed to have seen the puma were extraoridinarily similar.  
+Fishermen and sailors sometimes claim to have seen monsters in the sea.  
+  
+in the sunlight / in the sunshine / in the sun  
+in the moonlight / by moonlight  
+  
+### In time, it became an accepted fact that the Cox brothers employed a conscientious ghost that did most of their work for them.  
+in time 逐渐的，慢慢的  
+You'll get used to it in time.  
+  
+in due time  
+with time  
+with the passing / passage of time  
+It has become an accepted fact that a bad pratice is prevailing in the medical field. Doctors prescribe much more expensive medicine than necessary and patients, for their part, have to give doctors 'hangbao', money in a red envelope, for better treatment and safer surgery.  
