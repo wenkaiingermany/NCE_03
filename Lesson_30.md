@@ -153,3 +153,39 @@ in due time
 with time  
 with the passing / passage of time  
 It has become an accepted fact that a bad pratice is prevailing in the medical field. Doctors prescribe much more expensive medicine than necessary and patients, for their part, have to give doctors 'hangbao', money in a red envelope, for better treatment and safer surgery.  
+  
+### No one suspected that there might be someone else on the farm who had never been seen.  
+No one suspected that there might be a murderer hiding in the village who had never been recognized.  
+  
+### This was indeed the case.  
+Yet this is not always the case.  
+This is not always the case.  
+This is indeed the case.  
+This is not the case at all.  
+This might not be the case.  
+  
+### A short time ago, villagers were astonished to learn that the ghost of Endley had died.  
+  
+learn of / about  
+know of / about  
+hear of / about  
+  
+### Every one went to the funeral, for the 'ghost' was none other than Eric Cox, a third brother who was supposed to have died as a young man.  
+  
+everyone / every one  
+... poisoned every one of her five hushands.  
+  
+none other than 不是别人..., 正是...  
+Neighbors here were astonished to learn that the murderer was none other than the victim's wife who had, in her youth, poisoned every one of her five husbands.  
+  
+### After the funeral, Joe and Bob revealed a secret which they had kept for over fifty years.  
+  
+when (he was) a young man  
+in his youth  
+when young  
+  
+Only the good die young.  
+  
+keep a secret  
+reveal a secret  
+a secret becomes known  
