@@ -189,3 +189,96 @@ Only the good die young.
 keep a secret  
 reveal a secret  
 a secret becomes known  
+  
+### Eric had been the eldest son of the family, very much older than his two brothers.  
+old  older  oldest  
+old  elder  eldest  
+  
+### He had been obliged to join the army the Second World War.  
+join the army  
+join the part  加入某个组织  
+join in the party 参加一次活动  
+enlist in the army  
+be in the service  
+  
+recruit 募兵  
+conscript / draft 征兵  
+  
+Have you ever been in the service?  
+So why did you enlist?  
+I was drafted into the army last year.  
+  
+the Second World War  
+World War II  
+the First Chapter  
+Chapter One  
+  
+### As he hated army life, he decided to desert his regiment.  
+  
+life in the army  
+  
+### When he learnt that he would be sent abroad, he returned to the farm and his father hid him until the end of the war.  
+  
+learn of / about ...  
+hear of / about ...  
+know of / about ...  
+  
+### Fearing the authorities, Eric remained in hiding after the war as well.  
+Afraid of the authorities, ...  
+Fearing the penalty from the authorities, ...  
+  
+the authorities  
+the local authorities  
+the French / Chinese authorities  
+It is all too easy to blame the railway authorities when something does go wrong.  
+  
+government  
+  
+administration 某一届政府  
+the Clinton / Bush administration  
+  
+regime  
+a fascist regime  
+  
+The frightened family lived in hiding for three years.  
+  
+### His father told everybody that Eric had been killed in action.  
+be killed / wounded in action  
+be reported missing in action  
+  
+battle  
+in (a) battle  
+  
+### The only other people who knew the secret were Joe and Bob.  
+  
+They were tight-mouthed.  
+big mouthed  
+
+### When their father died, they thought it their duty to keep Eric in hiding.  
+  
+He thought it his duty to bright up the orphan.  
+  
+### All these years, Eric had lived as a recluse.  
+recluse / hermit 隐士  
+  
+live / lead a ... life  
+They can be friendly and affectionate towards humans, but they lead mysterious lives of their own as well.  
+  
+Eric had lived / led the life of a recluse / hermit.  
+  
+### He used to sleep during the day and work at night, quite unaware of the fact that he had become the ghost of Endley.  
+  
+be unaware of ...  
+be unconscious of ...  
+  
+not know ...  
+not realize ...  
+have no idea ...  
+  
+... quite unconscious of the fact that ...  
+... never knowing / realizing that ...  
+... not having the slightest idea that ...  
+
+### When he died, however, his brothers found it impossible to keep the secret any longer.  
+  
+I found it impossbile to resist temptation. 
