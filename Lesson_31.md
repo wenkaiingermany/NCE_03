@@ -68,3 +68,68 @@ labor-intensive industry
 capital-intensive industry  
 technology-intensive industry  
 knowledge-intensive industry  
+  
+### True eccentrics never deliberately set out to draw attention to themselves.  
+  
+deliberately  
+on purpose  
+intentionally  
+  
+set out to do: begin a job, task, etc with a particular aim or goal.  
+  
+The journalist immediately set out to obtain these impartant facts, but he took a long time to send them.  
+  
+Dmitri at once set out to find the thief.  
+  
+'We never set out to hurt you, Victor. And I'm sorry we did.'  
+  
+set out / off 动身，出发，启程  
+start out / off  
+  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Atlantic, ...  
+  
+After making a short test flight at 4.15 a.m., Bleriot set off half an hour later.  
+  
+draw (one's) attention  
+attract / capture / catch / arrest / command / get (one's) attention  
+  
+This attracted the attention of Richard Humphries who was then the most eminent boxer in England.  
+
+receive (one's) attention  
+This exhibition received a great deal of attention in the press, ...  
+
+### They disregard social conventions without being conscious that they are doing anything extraordinary.  
+
+without being conscious (of the fact) that ...  
+without being conscious of ...  
+without being aware (of the fact) that ...  
+without being aware of ...  
+  
+People tend to amass possenssions, sometimes without being aware of doing so.  
+  
+(being) unconscious (of the fact) that ...  
+He used to sleep during the day and work at night, quite unaware of the fact that he had become the ghost of Endley.  
+  
+They disregard safety problems, without being conscious that they are doing anything dangerous.  
+  
+### This invariably wins them the love and respect of others, for they add colour to the dull routine of everyday life.  
+  
+invariably: always  
+win sb. sth = win sth. for sb.  
+My sincerity won me her heart.  
+  
+add color to sth.  
+Intelligent use of metaphors can add color to your writing.  
+  
+add luster / lustre to sth.  
+add flavor / spice to sth.  
+add variety to sth.  
+  
+everyday adj.  
+every day adv.  
+  
+dull  
+boring  
+monotonous  
+  
+Surfing the Net wins inveriably itself the fascination of the young, for it adds colour to the dull routine of everyday life.  
