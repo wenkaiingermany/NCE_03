@@ -133,3 +133,53 @@ boring
 monotonous  
   
 Surfing the Net wins inveriably itself the fascination of the young, for it adds colour to the dull routine of everyday life.  
+  
+### Up to the time of his death, Richard Colson was one of the most notable figures in our town.  
+up to ...  
+up until ...  
+up till ...  
+until ...  
+  
+up to ...  
+less than ...  
+In Europe, taxex account for up to four-fifths of the retail price.  
+  
+notable: famous  
+... 'the most valiant soldier and most notable leader, Signor Giovanni Haukodue'.  
+  
+figure:  
+One of the most colorful figures in boxing history was Daniel Mendoza who was born in 1764.  
+  
+### He was a shrewd and wealthy businessman, but most people in hte town hardly knew anything about this side of his life.  
+  
+shrewdness  
+wealthiness  
+  
+Harry is very thrifty, but in the presence of his friends he never shows this side of his life.  
+  
+### He was known to us all as Dickie and his eccentricity had become legendary long before he died.  
+  
+be known (to sb.) as sth.  
+  
+The disease is commonly known as Mad Cow Disease.  
+  
+He soon made a name for hisself and came to be known to the Italians as Giovanni Acuto.  
+  
+Earvin Johnson is known to the Americans as 'Magic Johnson'.  
+  
+Li Bai is known to Chinese as poet immortal.  
+  
+Robin Hood is a legendary hero.  
+  
+legendary: famous / well-known  
+the legendary Hollywood director Steven Spielberg.  
+  
+The Chinese are legendary for their hospitality.  
+  
+Wu Song's strength and courage had become legendary long before he joined the Liangshan rebels.  
+  
+### Dickie disliked snobs intensely.  
+Dickie hated / abhhorred / detested / loathed / abominated snobs intensely.  
+Dickie found snobs repellent / repulsive / revolting / disgusting.  
+Snobs repelled / repulsed / revolted / disgusted Dickie intensely.  
+  
