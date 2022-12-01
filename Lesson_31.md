@@ -183,3 +183,106 @@ Dickie hated / abhhorred / detested / loathed / abominated snobs intensely.
 Dickie found snobs repellent / repulsive / revolting / disgusting.  
 Snobs repelled / repulsed / revolted / disgusted Dickie intensely.  
   
+### Though he owned a large car, he hardly ever used it, preferring always to go on foot, (rather than go in his car).
+  
+hardly ever  
+alomost never  
+seldom  
+rerely  
+  
+prefer to do rather than do  
+  
+Though he owned several bodyguards, he hardly ever asked them to accompany him, preferring always to take a stroll on his own.  
+  
+### Even when it was raining heavily, he refused to carry an umbrella.  
+It's raining hard / heavily.  
+It's pouring.  
+It's raining cats and dogs.  
+  
+### One day, he walked into an expensive shop after having been caught in a particularly heavy shower.  
+| 动名词的时态和语态 |
+| 时态\语态 | 主动 | 被动 |
+| 一般时 | doing | being done |
+| 完成时 | having done | having been done |  
+完成时强调动作先发生  
+  
+... after he had been caught in a particularly heavy shower.  
+  
+be caught in ...  
+He was caught in a storm / traffic jam.  
+be struck by ... 遭遇重创  
+In August, she was struck by a very heavy storm during which her rudder was torn away.  
+  
+### He wanted to buy a $300 watch for his wife, but he was in such a bedraggled condition that an assistant refused to serve him.  
+金钱 + worth of + 物品  
+a $300 worth of watch  
+  
+... but he was so bedraggled that ...  
+  
+His family was so impoverished that he could hardly afford his tuition.  
+His family was in such an impoverish condition that ...  
+  
+serve sb. with sth.  
+serve sth. to sb.  
+  
+### Dickie left the shop without a word and returned carrying a large cloth bag.  
+Dumb dogs are dangerous.  
+  
+### As it was extremely heavy, he dumped it on the counter.  
+weigh a ton  
+The chair weighs a ton.  
+  
+He slammed the door.  
+We all clapped our hands.  
+The soldier clicked his heels.  
+Don't clatter the dishes--you'll wake the bady up.  
+I'll smack your bottom if you don't behave yourself.  
+
+### The assistant asked him to leave, but Dickie paid no attention to him and requested to see the manager.  
+  
+Dickie ignored him.  
+Dickie took no notice of him.  
+Dickie turned a deaf ear to him.  
+Dickie turned a blind eye to him.  
+  
+You're requested not to smoke here.  
+You're required not to smoke here.  
+  
+### Recognizing who the customer was, the manager was most apologetic and reprimanded the assistant severely.  
+  
+### When Dickie was given the watch, he presented the assistant with the cloth bag.  
+  
+She gave a lecture on modern American poetry and was attentively listened to.  
+  
+The old professor wheeled himself to the platform and was warmly applauded by the students.  
+  
+He entered the cell and presented the letter to the aristocrat.  
+  
+### It contained $300 in pennies.  
+He paid me in cash / dollars.  
+Write it in ink / pencil / English.  
+  
+### He insisted on the assistant's counting the money before he left -- 30,000 pennies in all!  
+动名词的逻辑主语  
+一般来说，动名词的逻辑主语在正式文体中用属格，在非正式文体中用普通格。  
+  
+Do you mind my smoking here?  
+Do you mind me smoking here?  
+  
+Your falling into the river was the climax of the whole trip.  
+You falling into the river was the climax of the whole trip.  
+
+出现下列情况时，即使在正式文体中，动名词的逻辑主语也习惯使用普通格。  
+1. 逻辑主语为名词指物  
+The children are looking forward to spring coming.  
+2. 逻辑主语为多个名词  
+Do you remember Mary and her mother coming to see us last June?  
+3. 逻辑主语为以's'结尾的名词  
+It's a disaster the bosses shutting all those factories.  
+4. 逻辑主语与动名词分离  
+I remember mother once telling us a story about the fox.  
+5. 逻辑主语为不定代词someone, everything, something; 或者指示代词, this, that  
+They complained about everything going wrong.  
+He disapproved of that being said about Mary.  
+  
+
