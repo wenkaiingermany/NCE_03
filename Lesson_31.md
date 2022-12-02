@@ -285,4 +285,25 @@ I remember mother once telling us a story about the fox.
 They complained about everything going wrong.  
 He disapproved of that being said about Mary.  
   
-
+insist on ...  
+insist that ...  
+He insisted that the assistant (should) count the money before he left, ...  
+  
+Even though the noble was expected to read the letter at each performance, ha always insisted that it should be written out in full.  
+  
+### On another occasion, he invited a number of important critics to see his private collection of modern paintings.  
+  
+### This exhibition received a great deal of attention in the press, for though the pictures were supposed to be the work of famous artists, they had in fact been painted by Dickie.  
+  
+No creature has received more praise and abuse than the common garden snail.  
+  
+These young people, who love the peace of the mountains, always receive a warm welcome at St. Bernard's monastery.  
+  
+the press 新闻界  
+the freedom of the press  
+In democratic countries any efforts to restrict the freedom of the press are rightly comdemned.  
+  
+### It took him four years to stage this elaborate joke simply to prove that critics do not always know what they are talking about.  
+  
+... critics do not always talk sense.  
+... critics sometimes talk nonsense.  
