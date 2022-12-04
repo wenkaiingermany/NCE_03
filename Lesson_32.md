@@ -77,3 +77,71 @@ aeronautics  航空学
 astronautics 航天学  
   
 Beijing University of Aeronautics and Astronautics  
+  
+### The salvage operation had been a complete failure.  
+operation: work / activity / action  
+rescue / relief / cleanup operation  
+  
+For them this is a major operation which involves considerable planning.  
+  
+### The small ship, Elkor, which had been searching the Barents Sea for weeks, was on its way home.  
+  
+The small ship, after she had been searching the Barents Sea for weeks, was on its way home.  
+  
+The loss of the Titanic  
+The great ship, Titantic, sailed for New York from Southampton on April 10th, 1912.  
+  
+The Cutty Sark  
+One of the most famous sailing ships of the nineteenth century, the Cutty Sark, can still be seen at Greenwich.  
+  
+I have to be very carefull not to offend the boss, who could fire me at any time.  
+I have to be very careful not to offend the boss, bacause he could fire me at any time.  
+  
+The action, which has aroused universal disapproval, is nevertheless the only solution.  
+The action, although it has aroused universal disapproval, is nevertheless the only solution.  
+  
+on one's way (to ...)  
+On his way to the sweet shop, he dropped his fifty pence and it bounced along the pavement and then disappeared down a drain.  
+  
+... Alfred Bloggs who worked as a dustman for the Ellesmere Corporation.  
+Some plays are so successful that they run for years on end.  
+  
+Alfred Bloggs, a dustman for the Ellesmere Corporation, who had been working for 8 hours on end, was on his way home.  
+  
+### A radio message from the mainland had been reveived by the ship's captain instructing him to give up the search.  
+  
+radio message  
+radiogram  
+telegram  
+  
+mainland Europe  
+mainland China  
+  
+instruct sb. to do ...  
+The editor at once sent the journalist a fax instructing him to find out the exact number of steps and the height of the wall.  
+  
+Mrs. Ramsay was instructed to place the money in a cardboard box and to leave it outside her door.  
+  
+abandon the search  
+stop / cease the search  
+abort the search  
+  
+A letter from the kidnappers had benn received by the old lady instructing her to pay a ransom of $1,000.  
+An interesting discovery was made by archeologists that an ancient statue of a goddess turned out to be a very modern-looking woman.  
+  
+### The captain knew that another attempt would be made later, for the sunken ship he was trying to find had been carrying a precious cargo of gold bullion.  
+  
+make an attempt to do...  
+The captain knew that his would not be the only attempt.  
+  
+Ours is a tragic age. -- Shakespeare  
+
+Brevity is beauty.  
+
+cargo (可) 用船，飞机运的货物  
+freight (不可)各种运输工具运输的货物  
+The ship carries both freight and passengers.  
+cargo ship/airplane  
+freight train  
+      
+
