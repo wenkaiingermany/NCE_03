@@ -135,13 +135,46 @@ make an attempt to do...
 The captain knew that his would not be the only attempt.  
   
 Ours is a tragic age. -- Shakespeare  
-
+  
 Brevity is beauty.  
-
+  
 cargo (可) 用船，飞机运的货物  
 freight (不可)各种运输工具运输的货物  
 The ship carries both freight and passengers.  
 cargo ship/airplane  
 freight train  
       
-
+### Despite the message, the captain of the Elkor decided to try once more. The sea bed was scoured with powerful nets and there was tremendous excitement on board when a chest was raised from the bottom.  
+  
+sea bed / sea floor / sea bottom  
+tremendous adj. very great  
+Mendoza enjoyed tremendous popularity.  
+Though the new rudder was fitted at tremendous speed, it was impossible for the Cutty Sark to win.  
+The response to this competition was tremendous.  
+  
+on board / aboard  
+His experience will be valuable to both of us. Welcome aboard, Malcolm!  
+  
+There was tremendous excitement in the studio when the news came.  
+There was growing interest in English.  
+There is gereral agreement that women should enjoy full equality with men.  
+  
+### Though the crew were at first under the impression that the lost ship had been found, the contents of the chest proved them wrong.  
+  
+be under the impression that ... 还以为  
+Sorry, I was under the impression that you were the manager.  
+  
+give sb. the impression that ...  
+The sudden movement of the door made it sway slightly and it gave me the impression that it was about to leap out at me.  
+  
+be / live under the illusion / delusion that ... 错觉  
+Even he still lives under the illusion that country life is somehow superior to town life.  
+  
+The worst thing about the do-it-yourself game is that sometimes even men live under the delusion that they can do anything, even when they have repeatedly been proved wrong.  
+  
+The facts proved their worries unnecessary.  
+  
+### What they had in fact found was a ship which had been sunk many years before.  
+  
+What Columbus had in fact found was not India but a new continent which had been inhabited by aborigines for over twenty thousand years.  
+  
