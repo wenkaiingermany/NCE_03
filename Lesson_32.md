@@ -178,3 +178,82 @@ The facts proved their worries unnecessary.
   
 What Columbus had in fact found was not India but a new continent which had been inhabited by aborigines for over twenty thousand years.  
   
+### The chest contained the personal belongings of a seaman, Alan Fielding. There were books, clothing and photographs, together with letters which the seaman had once received from his wife.  
+  
+clothes  
+Fine clothes make a man.  
+clothing  
+Food, clothing, shelter and transportation are daily necessities.  
+  
+together with ...  = along with ...  
+Peter was murdered, together / along with thress guards.  
+These new facts, together / along with the other evidence, prove the prisoner's innocence.  
+  
+### The captain of the Elkor ordered his men to salvage as much as possible from the wreck.  
+In times of peace, when business was bad, Hawkwood and his men would march into a city-state and, ...  
+  
+subordinate  
+He left the routine check to one of his subordinates.  
+  
+superior  
+I'll pass your complaint on to my superiors.  
+  
+counterpart  
+The sales director phoned her counterpart in the other firm.  
+  
+the grassroots  
+  
+shipwreck  
+Poor man! - mentally a wreck  
+  
+### Nothing of value was found, but the numerous items which were brought to the surface proved to be of great interest.  
+  
+of + 名词: 描述人或事物的特征  
+1. 后置定语  
+nothing of value = nothing valuable  
+a matter of significance = a significant matter  
+a ship of 46,000 tons  
+a man of wide social relations  
+  
+2. 系动词后做表语  
+... proved to be of great interest = proved to be very interesting.  
+It is of no use = it is useless.  
+Her dress is of dark crimson.  
+He is of a peculiar disposition.  
+A man of middle height  
+The man is of middle height.  
+a girl of remarkable imagination  
+The girl is of remarkable imagination  
+  
+numerous / countless  
+There are countless people who, ever since their early years, have learned to associate snails with food.  
+  
+### From a heavy gun that was raised, the captain realized that the ship must have been a cruiser.  
+from prep. 考虑到，从...来看/判断  
+From her looks I'd say she was Swedish.  
+From what I heard the company's in deep trouble.  
+From this the captain was able to piece together all the information that had come to light.  
+  
+From the fragments of statues, the archaeologists realized that the temple must have been a place of worship.  
+  
+### In another chest, which contained the belongings of a ship's officer, there was an unfinished letter which had been written on March 14th, 1943.  
+  
+... which was dated March 14th, 1943.  
+a newspapar dated October 1st, 2005.  
+a girl aged 20  
+a man named John  
+a novel entitled Three Kingdoms  
+  
+### The captain learnt from the letter that the name of the lost ship was the Karen. The most valuable find of all was the ship's log book, parts of which it was still possible to read.  
+  
+"名词 + 介词 + 关系代词" 引导非限定性定语从句  
+He has two sons, one of whom died in the war.  
+The speaker posed four questions, the answers to which proved very illiminating.  
+  
+... parts of which were still possible to read.  
+  
+Most of our fears are unreasonable, but they are impossible to erase.  
+Most of our fears are unreasonable, but it is impossible to erase them.  
+  
+..., but it was impossible to stop the thieves.  
+He is impossible to deal with. 
