@@ -257,3 +257,34 @@ Most of our fears are unreasonable, but it is impossible to erase them.
   
 ..., but it was impossible to stop the thieves.  
 He is impossible to deal with. 
+  
+..., parts of which could still be read.  
+..., parts of which were still legible 清晰可辨.  
+
+### From this the captain was able to piece together all the information that had come to light.  
+  
+piece sth. <-> together  
+The police are still trying to piece together the facts.  
+The archaeologists pieced the fragments together.  
+  
+reconstruct  
+  
+come to light / be brought to light  
+New evidence is this case has recently come to light.
+                          has recnetly been brought to light.  
+  
+cast / shed / throw light on ... 揭示  
+These discoveries may cast some light on the origins of the universe.  
+  
+Even seemingly insignificant remains can shed interesting light on the history of early man.  
+  
+### The Karen had been sailing in a convoy to Russia when she was torpedoed by an enemy submarine.  
+I was having dinner when the phone rang.  
+I was about to leave when the phone rang.  
+He was going to the sweet shop when he dropped his fifty pence.  
+He was still mumbling something about hospitals at the end of the party when he slipped on a piece of ice and broke his left leg.  
+The idea never appealed to me very much, but one day, after a heavy shower, I happened to be walking in my garden when I noticed a huge number of snails taking a stroll on some of my prize plants.  
+The morning passed rapidly and Frank was about to leave when he noticed a large packing case lying on the floor.  
+  
+### This was later confirmed by a naval official at the Ministry of Defence after the Elkor had returned home. All the items that were found were sent to the War Museum.  
+  
