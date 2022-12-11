@@ -256,3 +256,59 @@ reduce sb. to despair
 reduce sb. to silence  
   
 unexpectedly / unforeseenly  
+  
+### Things can go wrong on a big scale, as a number of people recently discoerved in Parramatta, a suburb of Sydney.  
+  
+on a small scale  
+on a limited scale  
+on a big / large / great / grand / vast scale  
+on a colossal / huge / enormous / immense /gigantic scale  
+on a notional / nationwide scale  
+on a global / international / worldwide scale  
+  
+as引导的非限定性定语从句与which引导的非限定性定语从句的区别  
+1. as作为关系代词指代整个主句，which作为关系代词指代整个主句或先行词均可  
+2. as引导的非限定性定语从句位于主句前，中，后均可，而which引导的非限定性定语从句不能位于主句之前  
+As a poet points out, life is but a dream.  
+Children, as is always the case, love their mother.  
+She became angry, as many could see.  
+3. as引导的非限定性定语从句含有"众所周知"的意思，常译为"正如......"，而which引导的非限定性定语从句则未必有这个意思  
+The sun heats the earth, which makes it possible for plants to grow.  
+4.在"as + is/was + done"结构中可省略"is/was"， 而在"which + is/was + done"可省略"which + is/was"，而不能只省略be动词.  
+As (is) reported, a foreign delegation will visit the city.  
+a puma (which was) at large  
+  
+As Napoleon once pointed out, attack is the best method of defense.  
+  
+### During the rush hour one evening two cars collided and both drivers began to argue.  
+  
+the morning / evening rush hour  
+Don't travel at rush hour.  
+When the traffic was very heavy, ...  
+  
+collision  
+  
+### The woman immediately behind the two cars heppened to be learner.  
+immediately behind / above / below / in front of sth.  
+  
+It happened / chanced that the woman immediately beind the two cars was a learner.  
+  
+At is happened / As luch would have it, the woman immediately behind the two cars was a learner.  
+  
+### She suddenly got into a panic and stopped her car.  
+She got into a sudden panic and stopped her car.  
+She stopped her car in a sudden panic.  
+  
+### This made the driver following her brake hard.  
+brake hard / sharply  
+slam on the brakes  
+  
+stop  
+draw up  
+pull up  
+Seeing a cake flying through the air, a lorry driver who was drawing up alongside the car, pulled up all of a sudden.  
+
+come to a stop / halt  
+It came to a stop outside the jeweler's.  
+Bruce charged at it, but in the middle, the car came to a grinding halt.  
+  
