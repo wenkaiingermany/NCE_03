@@ -154,3 +154,105 @@ look after / take care of / watch
 babysit  
   
 He used to babysit for Mary when she worked nights.  
+  
+### The telephone rings and this marks the prelude to an unforeseen series of catastrophes.  
+The doorbell rang.  
+ring the doorbell  
+  
+go off  
+The alarm clock went off.  
+  
+strike  
+The clock is striking the hours.  
+The clock begang to strike twelve.  
+  
+It **marked** the end of the great tradition of ships with sails and the beginning of a new era.  
+  
+The foundation of the People's Republic of China marked the beginning of a new historical period of China.  
+  
+mark the prelude to ...  
+The dark clouds marked the prelude to a heavy storm.  
+  
+The Lugouqiao Incident marked the prelude to China's War of Resistance Against Japanese Aggression.  
+  
+### While yor are on the phone, the baby pulls the tablecloth off the table, smashing half your best crockery and cutting himself in the process.  
+  
+be on the phone  
+While you are answering the phone, ...  
+answer the door  
+  
+I'll get it.  
+May I speak to Mr. John Smith?  
+This is John Smith speaking.  
+This is he.  
+Speaking.  
+  
+Who is it?  
+Who is there?  
+Who is calling?  
+  
+One moment, please.  
+Hold on / Hang of, please.  
+John, there's a phone call for you.  
+John, you are wanted on the phone.  
+John, Tom's on the line. Pick up the phone on your desk.  
+
+Sorry, Mr. Smith is in a meeting right now. Would you like to leave a message / May I take a message?  
+
+Can you connect me with John Smith in the advertising department?  
+I'd like to place / make a collect call to Australia.  
+  
+The connection is very bad. I cn barely hear you.  
+There's something wrong with the phone. Let's hang up. I'll call you right back.  
+  
+He studied very hard (only) to fail the exam. 出乎意料  
+The firefighters raced up the building, (only) to be the first victims.  
+Farm labourers said that they always woke up to find that work had been done overnight.  
+  
+in the process: at the same time  
+I stood up to say hello and split my drink in the process.  
+  
+### You hang up hurriedly and attend to baby, crockery, etc.  
+  
+hang up  
+put the phone down  
+slam the phone down  
+  
+get cut off 掉线  
+Did you get cut off?  
+No, they asked me to hang up and try again later.  
+  
+hurriedly  
+in a hurry / rush  
+in haste  
+There's no hurry / rush.  
+What's the hurry / rush?  
+Take your time.  
+  
+Excuse me, ma'am. Ticket, please.  
+Would you kindly hold these keys, please? I have a ticket, I know. I was in the smoking section.  
+It's Ok, lady. Take your time.  
+  
+et cetera (etc.)  
+and so on  
+and so forth  
+and the like  
+and what not  
+  
+### Meanwhile, the meal gets burnt.  
+meanwhile  
+at the same time  
+in the process  
+(in the) meantime  
+  
+### As if this were not enough to reduce you to tears, your husband arrives, unexpectedly bringing three guests to dinner.  
+  
+'Oh, that,' he said with a smile as if he were talking about an old friend.  
+Don't act as if you were the only pebble on the beach.  
+  
+reduce sb. to sth.  
+reduce sb. to tears  
+reduce sb. to despair  
+reduce sb. to silence  
+  
+unexpectedly / unforeseenly  
