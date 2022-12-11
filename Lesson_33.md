@@ -312,3 +312,65 @@ come to a stop / halt
 It came to a stop outside the jeweler's.  
 Bruce charged at it, but in the middle, the car came to a grinding halt.  
   
+### His wife was sitting beside him holding a large cake. As she was thrown forward, the cake went right through the windscreen and landed on the road.  
+  
+### Seeing a cake flying through the air, a lorry driver who was drawing up alongside the car, pulled up all of a sudden.  
+  
+draw up  
+A taxi drew up at the gate.  
+  
+draw sth <=> up 起草  
+..., when the Marquis of Queensberry drew up the first set out rules.  
+  
+alongside adv. & prep.  
+A car drew up alongside.  
+A police car pulled up alongside us.  
+  
+### The **lorry** was loaded with empty beer bottles and hundreds of them slid off the back of the **vehicle** and on to the road.  
+... slid of the back ...  
+... slipped off the back ...  
+  
+**Giant pandas** are considered a national treasure and the Chinese government are doing their best to protect this **endangered species**.  
+  
+Moreover, in the past two years other nearby cities may have begun to build similar golf courses or resort hotels. Indeed, the fact that Ocean View has already built these facilities might actually portend failure for Hopewell, ...  
+  
+golf links  
+  
+### This led to yet another angry argument.  
+yet / still (another / one more ...)  
+yet one more question  
+still another exmaple  
+He sent yet another fax informing the journalist that if he did not reply soon he would be fired.  
+  
+### Meanwhile, the traffic piled up behind.  
+pile up  
+The work just keeps on piling up and makes me want to scream.  
+  
+### It took the police nearly an hour to get the traffic on the move again.  
+The police took nearly an hour to get the traffic on the move again.  
+The police spent nearly an hour (in) getting the traffic on the move again.  
+  
+on the + noun. 出于某种状态  
+The dog is on the alert.  
+He is always on the go.  
+The patient is on the recovery.  
+Crimes are on the rise.  
+While you are on the phone, ...  
+Even people who take no interest in art cannot have failed to notice examples of modern sculputure **on display** in public places.  
+The house is on sale.  
+The workers are on strike.  
+I'm here on vacation.  
+I'm here on business.  
+The nurse is on call 24 hours a day.  
+  
+### In the meantime, the lorry driver had to sweep up hundreds of broken bottles. Only two stray dogs benefited from all this confusion, for they greedily devoured what was left of the cake. It was just one of those days!  
+  
+benefit from ... 得益于...
+benefit ... 有益于...  
+This food will benefit your brain.  
+Your brain will benefit from this food.  
+  
+what is left of sth. = what remains of sth.  
+..., for they greedily devoured what remained of the cake.  
+It is recounted of Thomas Carlyle that when he heard of the illness of his friend, Henry Taylor, he went off immediately to visit him, carrying with him in his pocket what remained of a bottle of medicine formerly prescribed for an indisposition of Mrs. Carlyle's.  
+  
