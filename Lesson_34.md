@@ -303,31 +303,27 @@ in addition to ...
 
 Apart/Aside from some gold bullions, the chest was full of precious stones, most of them (being) diamonds.  
   
-
-
-
-
-
-
+### Frank gently lifted the crockery out of the box and suddenly noticed a miniature painting at the bottom of the packing case.  
   
-
-
-
-
+### As its composition and line reminded him of an Italian painting he knew well, he decided to buy it.  
+remind sb. of sth.  
+That song always reminds me of our first date.  
   
-
-
+remind sb. about sth. 提醒  
+remind sb. to do sth.  
+Can you remind us about your plans for the building?  
+Remind me to buy some milk tonight.  
   
-
-
-
-
-
-
-
-
-    
-
-
+Its composition and line reminding him of an Italian painting he knew well, he decided to buy it.  
   
-
+### Glancing at it briefly, the dealer told him that it was worth $50.  
+  
+### Frank could hardly conceal his excitement, for he knew that he made a real discovery.  
+  
+I had no intention of buying one, but I could not conceal the fact that I was inpressed by the size of the diamonds.  
+  
+Frank almost revealed his excitement.  
+  
+His function is analogous to that of a judge, who must accept the obligation of revealing in as obvious a manner as possible the course of reasoning which led him to his decision. 它的作用类似于法官，必须要承担这种，以尽可能明显的方式，揭示让他做出决定的推理的过程的责任。  
+  
+### The tiny paiting porved to be an unknown masterpiece by Correggio and was worth hundreds of thousands of pounds.  
