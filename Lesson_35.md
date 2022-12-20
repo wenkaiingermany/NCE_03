@@ -166,4 +166,89 @@ Metals expand when (they are) heated.
 While (he was) on a walking tour with his wife, he stopped to talk to a workman.  
   
 Young people, however young or inexperienced, should be treated with respect.  
-Criminals, however cruel(残忍) or vicious(邪恶), are human and should be treated hu'manely.
+Criminals, however cruel(残忍) or vicious(邪恶), are human and should be treated hu'manely.  
+  
+### There are rare instances when justice almost ceases to be an abstract concept.  
+  
+there are rare instances when ... = occasionally  
+There are rare instances when love turns to hatred.  
+  
+there are instances when ...  
+= there are times when ...  
+= sometimes  
+  
+There are times when we would willingly give everything we possess to save our lives, yet we might grudge paying a surgeon a high fee for offering us precisely this service.  
+  
+there was a time when ...  
+= once  
+  
+There was a time when the owners of shops and businesses in Chicago had to pay large sums of money to gangsters in return for 'protection'.  
+  
+cease to do / doing: stop doing  
+That department has ceased to exist.  
+The factory has ceased making bicycles.  
+  
+stop doing  
+stop to do  
+Please stop smoking. Smoke really bothers me.  
+I'm exhausted. Let's stop to smoke.  
+Stop to smell the flowers.  
+  
+'abstract  
+Beauty itself is abstract.  
+  
+concrete / solid  
+a concrete / solid example  
+  
+There are instances when patriotism ceases to be an empty slogan.  
+  
+### Reward or punishment are meted out quite independent of human interference.  
+  
+A man or a woman is waiting in the room.  
+  
+mete sth. <-> out (to sb.): give or administer (punishment, rewards, etc)  
+  
+He felt he had a right to mete out physical punishment to the children.  
+Judges are meting out increasingly harsh sentences for car theft.  
+  
+be independent of ...  
+We need a central bank that is independent of the government.  
+  
+Computers can find out potential problems and solve them quit independent human interference.  
+  
+The little boy finished the jigsaw puzzle quite independent of his parents' assistance.  
+  
+### At such times, justice acts like a living force.  
+He is living proof of the wonders of modern medicine.  
+  
+### When we use a phrase like 'it serves him right', we are, in part, admitting that a certain set of circumstances has enabled justice to act of its own accord.  
+  
+It serves you right. 罪有应得  
+You deserve it.  
+You got what you deserve.  
+You're asking for it.  
+As you've made your bed, now you have to lie on it.  
+  
+**in part = partly = to some degree**  
+The accident was due in part to the bad weather.  
+  
+Public distrust of scientists stems in part from the blurring of boudaries between science and technology, between discovery and manufacture.  
+  
+stem from  源于  
+  
+Blacks have significantly shorter life spans, in part due to racism in the health establishment.  
+  
+**for one's part** 对于某人而言  
+For my part, I prefer to live in the city.  
+Napoleon's army was weakened and the British, for their part, were eager to attack.  
+  
+**on the part of... / on one's part**  
+It was a mistake on my part.  
+It was a mistake on the part of the authorities.  
+  
+It was not a matter of choice for the traveler or merely a chatitable impulse **on the part of** the settlers. It reflected the harshness of daily life: if you didn't take in the stranger and take care of him, there was no one else who would. And someday, remember, you might be in the same situation.  
+  
+enable sb. to do  
+of one's own accord  
+He joined the army of his own accord.  
+  
