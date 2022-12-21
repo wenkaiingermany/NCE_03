@@ -252,3 +252,150 @@ enable sb. to do
 of one's own accord  
 He joined the army of his own accord.  
   
+### When a thief was caught on the premises of a large jewellery store one morning, the shop assistants must have found it impossible to resist the temptation to say 'it serves him right'.  
+  
+premises n. [plural] the buildings and land that a shop, restaurant, company etc uses 房屋建筑物，经营场所  
+  
+on the premises  
+There is always a manager on the premises.  
+  
+off the premises  
+The manager escorted (护送) him off the premises.  
+  
+find it impossible to resist the temptation to do  
+When I saw that fascinating teddy bear, I found it impossible to resist the temptation to buy it.  
+  
+can't help doing ...  
+can't help but do ...  
+The shop assistants couldn't help saying 'it serves him right'.  
+The shop assistants couldn't help but say 'it serves him right'.  
+  
+### The shop was an old converted house with many large, disused fireplaces and tall, narrow chimneys.  
+  
+disused adj. 废弃不用的  
+Many disused railway lines have become public footpaths.  
+  
+unused adj. 未使用过的  
+an unused envelope  
+  
+### Towards midday, a girl heard a muffled cry coming from behind one of the walls.  
+  
+towards / toward prep. near (a point in time)  
+Toward the end of the afternoon it began to rain.  
+After having been wounded towards the end of the war, he had been sent to hospital and was separated from his unit.  
+  
+muffle v. to make a sound less loud and clear, especially by covering something.  
+The falling snow muffled the sound of our footsteps.  
+I could hear muffled voices in the next room.  
+  
+副词和介词短语都可以作借此的宾语  
+There is a fine view from here.  
+I heard them calling me from below.  
+Suddenly, there was a slight trembling sound from below, and the captain went down to see what had happened.  
+They have just returned from abroad.  
+I took my watch from under the pillow.  
+He picked up the gun from behind the counter.  
+I live near here.  
+We didn't meet until after the show.  
+The weather has been fine except in the north.  
+  
+### As the cry was repeated several times, she ran to tell the manager who (/and the manager) promptly rang up the fire brigade.  
+John went to see his bank manager who sent the remains of wallet and the money to the special department of the Bank of England in Newcastle: the Multilated Ladies!  
+Much to the aristocrat's amusement, the gaoler returned a few minute later with a pair of glasses and the usual copy of the letter which he preceeded to read to the prisoner.  
+  
+promptly adv. 1. immediately  
+If the money was not paid promptly, the gangsters would quickly put a man out of business by destroying his shop.  
+And he promptly handed the sheet of paper to the gaoler.  
+  
+              2. punctually  
+They arrived promptly at two o'clock  
+  
+ring / call / phone sb- <-> up  
+She uses the office phone to ring up her friends in Sweden.  
+John called him up to make sure of the date of the graduation ceremony.  
+  
+I'll phone the manager up tomorrow.  
+  
+the fire brigade / department  
+fireman / firefighter / fire fighter  
+  
+### The cry had certainly come from one of the chimneys, but as there were so many of them, the fire fighters could not be certain which one it was.  
+  
+### They located the right chimney by tapping at the walls and listening for the man's cries.  
+  
+locate v. discover the exact position or place of sb. / sth.  
+We couldn't locate the source of the radio signal.  
+Police are still trying to locate the 'suspect.  
+  
+tap v. to hit your fingers lightly on something, for example to get sb's attention  
+tap at / on ...  
+Someone tapped at / on the door.  
+  
+A sound made by tapping on the bull of a ship will be reflected from the sea bottom, ...  
+  
+listen (out) for sth. wait alertly in order to hear (a sound)  
+Please listen (out) for the phone while I'm in the bath.  
+Can you listen (out) for the doorbell?  
+  
+Someone called the fire brigade and two fire fighters used a special type of grease and then freed George. -> The fire brigade was called and two fire fighters freed George using a special type of grease.  
+  
+### After chipping through a wall which was eighteen inches thick, they found that a man had been trapped in the chimney.  
+  
+It took a long time to chip a hole in the wall.  
+Archaeologists were carefully chipping away at the rock.  
+  
+trap v. to prevent sb. from leaving a place, especially a dangerous place  
+Twenty miners were trapped underground.  
+There's no way out! We're trapped!  
+  
+be / get stuck (stick)  
+A crowd of people gathered round him and a lady rubbed his arm with soap and butter, but George was firmly stuck.  
+  
+The sorry-looking, blackened figure that emerged, admitted at once that he had tried to break into the shop during the night but had got stuck in the chimney.  
+  
+be cornered  
+It immediately ran away when she saw it, and experts confirmed that a puma will not attack a human being unless it is cornered.  
+  
+be kept in  
+As there are so many people about, the dogs have to be kept in a special enclosure.  
+  
+be imprisoned  
+A famous actor in a highly successful play was once cast in the role of an aristocrat who had been imprisoned in the Bastille for twenty years.  
+  
+### As it was extremely narrow, the man was unable to move, but the fire fighters were eventually able to free him by cutting a huge hole in the wall.  
+  
+As it was extremely heave, he dumped it on the counter.  
+  
+### The sorry-looking, blackened figure that emerged, admitted at once that he had tried to break into the shop during the night but had got stuck in the chimney.  
+  
+sorry adj. feeling ashamed or unhappy about something bad you have done  
+She was genuinedly sorry for what she had done.  
+  
+a very modern-looking woman  
+an interesting-looking carved dagger  
+an ugly-looking black goat  
+the sorry-looking, blackened figure  
+  
+blacken v. to become black, or make something black  
+The thunder became louder and the sky blackened.  
+  
+figure n. someone with a particular type of appearance or character, especially when they are far away of difficult to see.  
+  
+In the torchlight, he caught sight of a figure whom he immediately recognized as Bill Wilkins, our local grocer.  
+  
+A farm worker, who stayed up all night, claimed to have seen a figure cutting corn in the moonlight.  
+  
+break into sth. to enter a building or car by using force, in order to steal sth.  
+  
+Her house was broken into last week.  
+  
+break in: to enter a building by using force, in order to steal sth.  
+If anyone tries to break in, the alarm will go off.  
+  
+force an entry: 强行闯入  
+It was as clear as daylight then that burglars had forced an entry during her absence.  
+  
+### He had been there for nearly ten hours. Justice had been done even before the man way handed over to the police.  
+  
+hand sb. over to ... give a prisoner to another group of people in authority in another country  
+The terrorists were taken to the airport, where they were handed over to the French authorities. 
