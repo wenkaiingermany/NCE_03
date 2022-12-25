@@ -79,3 +79,119 @@ The work was familiar to him.
 acquaintance n. 
 He is my only acquaintance in the little town.  
   
+I'd love to buy a Rolls-Royce, but it costs an arm and a leg.  
+Everybody was clapping their hands off.  
+I didn't sleep a wink last night.  
+He has a skeleton of a wife.  
+  
+### We are less credulous than we used to be.  
+We spend more time traveling than we used to.  
+  
+less + adj. / adv. + than ...  
+not so / as + adj. / adv. + as ...  
+We are not so / as credulous as we used to be.  
+He is less introverted than he used to be.  
+He is not so / as introverted as he used to be.  
+He speaks English less well than he used to.  
+He doesn't speak English so / as well as he used to.  
+  
+### In the 19th century, a novelist would bring his story to a conclusion by presenting his readers with a series of coincidences -- most of them wildly improbable.  
+  
+would 和 used to do 类似，都可以表示过去习惯性的动作，如 One day in a week he would spend a whole day in silence. 但注意 would 不能用在故事开头，往往在故事开头用used to do，而后面换为would do，如 We used to work in the same office and we would often have coffee together.  
+  
+bring sth. to a conclusion 结束
+The two contries decided to bring the war to a conclusion.  
+  
+come to / arrive at / reach / draw a conclusion  得出结论  
+  
+bring sth. to a close / an end  
+The rally was brought to a close / an end by the singing of the national anthem.  
+  
+end / close / conclude ...  
+..., a novelist would end / close / conclude his story by ...  
+  
+bring ... to ...  
+It was the war that first brought him to power.  
+So far the US has been unable to bring him to justice.  
+  
+present sb. with sth.  
+present sth. to sb.  
+  
+He entered the cell and presented the letter to the a'ristocrat.  
+  
+an unforeseen series of catastrophes  
+a series of ...  
+a chain of ...  
+a train of ...  
+a trail of ...  
+a string of ...  
+a stream of ...  
+  
+by coindicence  
+My mother is called Anna, and by coincidence my wife's mother is called Anna too.  
+  
+coincide with sth. 碰巧  
+My arrival coincided with his departure.  
+  
+If our schedules coincide, we'll go to Shanghai together.  
+His tastes and habits coincide with those of his wife.  
+It is fortunate for the old couple that their son's career goals and their wished for him coincide.  
+  
+-- most of them being wildly improbable. 独立主格  
+-- most of them were wildly improbable. **X** 
+-- and / but most of them were wildly improbable.  
+-- most of which were wildly improbable.  
+  
+Apart from an interesting-looking carved dagger, the box was full of crockery, much of it broken.  
+  
+The archaeologists found fifteen statues, each of them representing a goddess.  
+  
+### Readers happily accepted the fact that an obscure maidservant was really the hero's mother.  
+  
+### A long-lost brother, who was presumed dead, was really alive all the time and wickedly plotting to bring about the hero's downfall.  
+  
+be presumed dead / innocent ...  
+Their nephew was missing, presumed dead.  
+In English law, an accused man is presumed innocent until he is proved guilty.  
+  
+He may hunt, beg, or steal occasinally to keep himself **alive**, ...  
+  
+living  
+all living things  
+living proof  
+At such times, justice acts like a living force.  
+  
+live  
+experiments in live animals  
+  
+be transimitted live 现场直播  
+Is the wire live? 有电吗？  
+  
+... and wickedly scheming to ...  
+... and wickedly conspiring to ...  
+  
+a plot to assassinate the President 暗杀  
+scheme   
+intrigue  
+conspiracy  合谋  
+  
+schemes and intrigues 阴谋诡计  
+All the imperialist schemes and intrigues are doomed to failure.  
+  
+bring about 导致  
+  
+downfall n. 1. fall from a position of prosperity or power  
+Greed led to his downfall  
+        n. 2. thing that causes this 
+His vanity was his downfall.  
+
+undoing 垮台的原因  
+The team's weak defense was their undoing.  
+The proved to be my undoing, for I soon got back to my old habit of dozing off in front of the screen.  
+  
+and so on
+and so forth  
+and the like  
+and what not  
+etc. (et cetera)  
+  
