@@ -145,4 +145,146 @@ astronaut
 disaster  
 asterisk  
 asteroid 小行星  
- 
+  
+### We have learnt to expect that trains will be punctual. After years of conditioning, most of us have developed an unshakable faith in railway timetables.  
+great / enormous / tremendous faith 信任  
+absolute / implicit faith  
+complete / total faith  
+unshakable faith  
+blind faith  
+  
+develop faith **in**  
+have faith in ...  
+put / place faith in ...  
+shake / undermine faith in ...  
+destroy faith in ...  
+lose faith in ...  
+restore faith in ...  
+
+timetable / schedule  
+train / railway / railroad ~  
+college / school ~  
+exam / examination ~  
+  
+### Ships may be delayed by storms; flights may be cancelled because of bad weather; but trains must be on time.  
+  
+He may hunt, beg, or steal occasionally to keep himself alive; he may even, in times of real need, do a little work; but he will never sacrifice his freedom.  
+  
+### Only an exceptionally heavy snowfall might tempo'rarily dislocate railway services.  
+snowfall n. [U & C]降雪; 降雪量  
+heavy / light snowfall  
+annual / average snowfall  
+  
+temporary  
+A temporary rudder was made on board from spare planks and it was fitted with great difficulty.  
+  
+### It is all too easy to blame the railway authorities when something does go wrong.  
+  
+too ... to ...  
+He was too excited to say a word.  
+  
+glad / pleased ...  
+ready / willing ...  
+easy / apt ...  
+eager / anxious ...  
+  
+I'm too pleased to help you.  
+She is too willing to marry him.  
+He's too eager to pass the exam.  
+  
+(only / all / but) too ... to ...  
+I'm only too pleased to help you.  
+They're but too glad to do so.  
+..., and the doctor in charge of the department is only too ready to provide them with these requirements.  
+  
+the authorities  
+the local authorities  
+the Chinese authorities  
+Fearing the authorities, Eric remained in hiding after the war as well.  
+When the fire had at last been put out, the forest authorities ordered several tons of a special type of grass-seed which would grow quickly.  
+  
+go wrong 出错，出问题，不顺利  
+We have all experienced days when everything goes wrong.  
+  
+It is all too easy to give up our dreams when problems and difficulties do arise.  
+  
+### Then truth is that when mistakes occur, they are more likely to be ours than theirs.  
+  
+more ... than ... "与其说(后者)不如说(前者)"  
+It is more a poem than a picture.  
+He is more diligent than clever.  
+The present crisis in capitalist countries is more a political than an economic crisis.  
+  
+### After consulting my railway timetable, I noted with satisfaction that there was an express train to Westhaven.  
+  
+with satisfaction = satisfiedly  
+with ease = easily  
+with delight = delightedly  
+with pride = proudly  
+with a smile = smilingly  
+with attention = attentively  
+with confidence = confidently  
+with relucctance = reluctantly  
+  
+### It went direct from my local station and the journey lasted a mere hour and seventeen minutes.  
+  
+a mere ... 仅仅...  
+a mere + 单数名词 = only a / an  
+       + 复数名词 = only  
+It went direct from my local station and the journey lasted a mere (=only an) hour and 17 minutes.  
+He's a mere (=only a) child.  
+He's not a mere (=only a) boxer: he's world champion.  
+He has often described to me how he picked up a masterpiece for a mere (=only) $50.  
+Glancing at his map, he informed us that the next village was a mere (=only) twenty miles away.  
+  
+### When I boarded the train, I could not help noticing that a great many local people got on as well.  
+  
+board a bus / train / ship / plane  
+The couple boarded the train for New York.  
+Flight No. 714 for Paris is now boarding at Gate 8.  
+  
+get on a bus / train / ship / plane  
+get off a bus / train / ship / plane  
+  
+I had no sooner got off the ship than I was assailed by a man who wanted to sell me a diamond ring.  
+  
+get into a car / taxi  
+get out of a car / taxi  
+  
+embark on a ship / plane  
+disembark from a ship / plane  
+  
+can't help (doing) sth. ...  
+I couldn't help thinking about the past.  
+'Stop biting your nails.' 'I can't help it.'  
+  
+can't help but do ...  
+Her evidence was so convincing that I could not help but agree with her.  
+  
+sth. can't be helped 无法避免  
+I really don't want to go this weekend, but it can't be helped.  
+  
+I don't know how I managed to break that platter. I'll be more than happy to buy you a new one.  
+Forget about it. Some things just can't be helped.  
+She doesn't want the man to replace the platter.  
+  
+not if I can help it. 能不做就不做
+'Are you going to watch the school play?'  
+'Not if I can help it.'  
+  
+'Will you be living in the formitory this year?'  
+'Not if I can help it. I've been thinking of renting an apartment off campus with some friends of mine.'  
+She doesn't want to live in university housing.  
+  
+help oneself to sth. 自便; 偷  
+One of the thieves was struck by a heavy statue, but he was too busy helping himself to diamonds to notice any pain.  
+  
+### At the time, this did not strike me as odd.  
+  
+strike sb. as 给某人某种印象; 觉得......  
+The idea struck me as stupid.  
+The request struck me as comic.  
+He struck them as an honest man.  
+  
+### I reflected that there must be a great many people besides myself who wished to take advantage of this excellent service.  
+  
