@@ -288,3 +288,146 @@ He struck them as an honest man.
   
 ### I reflected that there must be a great many people besides myself who wished to take advantage of this excellent service.  
   
+reflect v. 心想，考虑  
+reflect on ...  
+I need time to reflect (on what to do).  
+reflect that ...  
+She reflected that his argument was probably true.  
+  
+take advantage of sth. 利用某物  
+I took advantage of the good weather to paint the shed.  
+Many schools don't take full advantage of the Internet.  
+  
+take advantage of sb. 利用某人，占便宜  
+Don't lend them the car -- they're taking advantage of you!   
+  
+### Neither was I surprised when the train stopped at Widley, a tiny station a few miles along the line.  
+  
+部分倒装  
+只把助动词，be动词(之前没有其他助动词)或情态动词置于主语之前  
+  
+1. 否定词位于句首: not only, not until, neither, nor, never, hardly, barely, scarcely, few, little, raraly, seldom, under no circumstances, in no way, ...  
+Not only had the poor man been arrested, but he had been sent to prison as well.  
+Nor is the city without its moments of beauty.  
+2. only + 状语 位于句首  
+3. such, so, well, often, many a time 等表示程度，频率的副词位于句首  
+  
+### Even a mighty express train can be held up by signals.  
+mighty adj. very large, powerful, or impressive  
+a mighty warrior  
+a mighty empire  
+With a mighty kick, he broke down the door.  
+  
+hold sb. / sth. <-> up: to delay sb. or sth.  
+Our flight was held up by fog.  
+My application was held up by the postal strike.  
+Road-works on the motorway are holding up traffic.  
+  
+### But when the train dawdled at station after station, I began to wonder.  
+dawdle v. to take a long time to do sth. or go somewhere.  
+Stop dawdling and hurry up: we're late.  
+Eleanor will be back any moment, if she doesn't dawdle.  
+  
+sth. after sth.(前后都是零冠词)  
+day after day/week/year/time    
+he fired shot after shot
+Shelley send him letter after letter to explain the delay.  
+They sent regiment after regiment to attack us.  
+In factory after factory we were shown machines built by the workers themselves.  
+  
+### It suddenly dawned on me that this express was not roaring down the line at 90 miles an hour, but barely chugging along at 30.  
+  
+sth. dawn on sb.某人想到某事  
+sth. occur to sb.  
+sth. strike sb.  
+sth. cross one's mind  
+It dawned on me that Joanna had been right all along.  
+It suddenly occured to one of the workers to open up the box.  
+It suddenly struck me how we could improve the situation.  
+It didn't cross her mind that she might be doing someting illegal.  
+  
+sb. realize that...  
+sb. become aware (of the fact) that...  
+sb. wake up to the fact that...  
+  
+roar down...  
+The silence was suddenly broken when a large car, with its headlights on and its horn blaring, roared down the arcade.  
+  
+chug v. if a car, train etc. chugs somewhere, it moves there slowly, with the engine making a repeated low sound.  
+chug along / down / up etc.
+An old car chugged down the road.  
+  
+### One hour and seventeen minutes passed and we had not even covered half the distance.  
+  
+cover v. travel (a certain distance)  
+By sunset we had covered thirty miles.  
+A week before, he had completed a successful overland flight during which he covered twenty-six miles.  
+  
+### I asked a passenger if this was the Westhaven Express, but he had not even heard of it.  
+hear of / about  
+know of / about  
+learn of / about  
+
+### I determined to lodge a complaint as soon as we arrived.  
+determine / resolve to do sth.  
+After the divorce she determined / resolved never to marry again.  
+  
+lodge / bring / file a complaint  
+get/receive a complaint  
+deal with / handle a complaint  
+investigate a complaint  
+resolve a complaint  
+reject a complaint  
+  
+### Two hours later, I was talking angrily to the station master at Westhaven.  
+  
+stationmaster / station master  
+an official in charge of a railroad or bus station  
+  
+### When he denied the train's existence, I borrowed his copy of the timetable.  
+deny sth. / doing / that...  
+admit / acknowledge + sth./doing/that...  
+He denied the charge. / knowing about it./that he had stolen the sheep.  
+deny the existence of sth. / sth.'s existence.  
+Atheists(无神论者) deny the existence of God.  
+Officials have repeatedly denied the existence of a secret report. 
+  
+But the copy the gave him had not been written out in full as usual.  
+  
+### There was a note of triumph in my voice when I told him ***that it was there in black and white***.  
+  
+note n. a way of speaking or writing that shows what someone's feelings are语言文字中带有某种感情  
+there is/ was a note of ... in...  
+There was a note of doubt in her voice.  
+There was a note of self-satisfaction in his speech.  
+there was a note of sadness in her letter.  
+  
+in black and white: in writing or in print  
+I want the contract in black and white.  
+a black-and-white photograph/television/printer
+a color ...  
+beat sb. black and blue  
+be in the black 有盈余 <-> be in the red 有赤字  
+We've managed to stay in the black for over a year now.  
+This is the airline's fourth straight year in the red.  
+  
+### Glancing at it briefly, he told me to look again.  
+glance at...  
+Glancing at his map, he informed us that the next village was a mere twenty miles away.  
+take / have / shoot / throw / cast a glance (at...)  
+The couple at the next table cast quick glances in our direction.  
+So I drove back to the town and began to retrace the route, **taking frequent glances at** the map.  
+  
+### A tiny asterisk conducted me to a footnote at the bottom of the page. It said: 'This service has been suspended.'  
+conduct sb. to...  
+I asked the attendant to conduct him to the door.  
+footnote n. a note at the bottom of the page in a book, which gives more information about something.  
+  
+say v. 上面写着  
+The sign says 'Keep Out'.
+What did the letter say?  
+The first thing I saw when I entered the art gallery was a notice which said: 'Do not touch the exhibits. Some of them are dangerous!'
+  
+The ferry sevice has **been suspended** for the day because of bad weather.终止  
+The policeman **was suspended** while the complaint was investigated.停职  
+Dave **was suspended from** school from a week.停课  
