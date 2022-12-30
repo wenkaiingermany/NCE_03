@@ -216,3 +216,48 @@ Graham was not a little / more than a little frightened by what he had seen.
   
 perturbed = disturbed = worried  
   
+### Glancing at his map, he informed us that the next village was a mere (=only) 20 miles away.  
+  
+glance at ... 浏览  
+  
+inform sb. of / about sth.  
+inform sb. that ...  
+  
+convince sb. of that ...  
+convince sb. that ...  
+  
+a mere ... 仅仅  
+a mere 后跟单数名词 = only a / an  
+在其他情况下 a mere = only  
+  
+It went direct from my local station and the journey lasted a mere (=only an) hour and 17 minutes.  
+  
+### It was not that Bruce always underrestimated difficulties. He simply had no sense of danger at all.  
+..., but (that) he simply ... 
+  
+It is / was not that ..., but (that) ...  不是因为..., 而是因为...  
+  
+It is not that the scales in the one case, and the balance in the other, differ in the principles of their construction or manner of working; but that the latter is a much finer apparatus and of course much more accurate in its measurement than the former.  
+  
+not that ..., but that ...  
+Not that I love Caesar less, but that I love Rome more.  
+Not that I love you less, but that I love liberty more.  
+Not that I love my teacher less, but that I love truth more.  
+  
+simply adv. used to emphasize what you are saying  
+He simply had no sense of danger at all.  
+His pronunciation is simply terrible.  
+That is simply not true!  
+I simply refuse to go!  
+  
+### No matter what the conditions were, he believed that a car should be driven as fast as it could possibly go.  
+Whatever the conditions were, ...  
+  
+possibly 经常与can/could连用以表示"尽全力"的意思,后跟动词时常用can/could possibly + 动词，后省略动词时常用 possibly can/could.  
+  
+She's done everything she could possibly think of to help.  
+We shall be contributing as much as we possibly can to the campaign.  
+Doctors did everything they possibly could to save his life.  
+  
+No matter what the conditions were, Lei Feng believed that a person should contribute as much as he possibly could to society.  
+No matter what the conditions were, Lei Feng believed that a person should make as many contributions as he could possibly think of to society.  
