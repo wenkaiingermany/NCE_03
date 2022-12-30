@@ -137,3 +137,82 @@ Ellie pleaded tiredness and went to bed very early.
   
 No one can plead ingorance of a subject any longer, for there are countless do-it-youself publications.  
   
+### The rough road across the plain soon became so bad that we tried to get Bruce to drive back to the village we had come from.  
+  
+get sb. to do 说服  
+He got his sister to help him with his homework.  
+We couldn't get him to sign the agreement.  
+  
+persuade sb. to do / into doing  
+I finally managed to persuade her to go out for a drink with me.  
+Don't let youself be persuaded into buying things you don't want.  
+  
+In their efforts to persuade us to buy this or that product, advertisers have made a close study of human nature and have classified all our little weaknesses.  
+  
+talk sb. into doing  
+We finally talked Father into buying the new car.  
+  
+get sb. not to do 
+persuade sb. not to do / out of doing  
+talk sb. out doing  
+  
+dissuade sb. from doing  
+  
+### Even though the road was littered with boulders and pitted with holes, Bruce was not in the least perturbed.  
+    
+be littered with ... 杂乱地堆满  
+The garden was soon littered with chunks of metal which had once made up a lawn mower.  
+  
+litter  
+There is always hope that in its labyrinth of musty, dark, disordered rooms a real rarity will be found amongst the piles of assorted junk that litter the floors.  
+  
+be pitted with ...  
+The road was pitted with holes.  
+His face is pitted with smallpox.  
+  
+be dotted / scattered with... 星罗密布的  
+The sky is ~ with stars.  
+The lawn is ~ with pine tree.  
+  
+be covered with ...  
+Before she had anchored, the men from the boats had climbed on board and the decks were soon covered with colourful rugs from Persia, silks from India, copper coffee pots, and beautiful handmade silverware.  
+  
+be loaded with... 
+Small boats loaded with wares sped to the great liner as she was entering the harbour.  
+  
+be filled with ...  
+... it is filled with what looks like a thick, greyish substance.  
+All at once, I noticed that my wife seemed to be filled with alarm.  
+  
+be packed / crammen with ...  
+The streets were packed / crammed with Christmas shoppers.  
+It has been estimated that if the bridge were packed with cars, it would still only be carrying a third of its total capacity.  
+  
+be stuffed with ...  
+a pillow stuffed with feathers  
+duck stuffed with 'eight treasures'  
+stuffed birds 鸟类标本  
+  
+I'm stuffed. = I'm full.  
+  
+by no means  
+not by any means  
+not at all  
+in no way  
+on no account  
+not on any account  
+not a bit 
+not in the least 一点也不  
+on no condition  
+under no circumstances  
+  
+By no means can theory be separated from practice.  
+On no account must you disturb me when I'm working.  
+On no condition should untrained personnel use the equipment.  
+Under no circumstances will we agree to splitting up the company.  
+  
+not a little = more than a little = very  
+Graham was not a little / more than a little frightened by what he had seen.  
+  
+perturbed = disturbed = worried  
+  
