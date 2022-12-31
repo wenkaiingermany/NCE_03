@@ -261,3 +261,160 @@ Doctors did everything they possibly could to save his life.
   
 No matter what the conditions were, Lei Feng believed that a person should contribute as much as he possibly could to society.  
 No matter what the conditions were, Lei Feng believed that a person should make as many contributions as he could possibly think of to society.  
+  
+### As we bumped over the dusty track, we swerved to avoid large boulders.  
+bump v. 碰撞  
+bump over / across / along / down ... 颠簸前行  
+A police car bumped down the track.  
+  
+track n. a narrow path or road with a rough uneven surface, esp. one made by vehicles, people or animals.  
+  
+### The wheels scooped up stones which hammered ominously under the car.  
+scoop n. a tool with a deep bowl-shaped end which is used to dig out and move a soft or powdery substance.  
+  
+a scroop of ice-cream  
+  
+scoop (up / out) sth.  
+He scooped water from the stream and splashed it on his face.  
+She bent down and scooped up the little dog.  
+Carefully scoop out the pulp (果肉) with a small spoon.  
+  
+hammer / thunder  
+He hammered / thundered at the door.  
+  
+It immediately ran away when she saw it, and experts confirmed that a puma will not attack a human being unless it is cornered.  
+  
+He elbowed his way through the crowd.  
+I am fogged by the issue.  
+The lady housed the homeless.  
+  
+### We felt sure that sooner or later a stone would rip a hole in our petrol tank or damage the engine.  
+  
+sooner or later: 
+You should tell her, because she'll find out sooner or later.  
+  
+rip / tear a hole  
+The nail ripped / tore a hole in my jacket.  
+  
+### Because of this, we kept looking back, wondering if we were leaving a trail of oil and petrol behind us.  
+  
+leave a trail of ... behind ...  
+The bus left a trail of black smoke behind it.  
+He left a trail of muddy footprints behind him.  
+Wherever it went, it left behind it a trail of dead deer and small animals like rabbits.  
+  
+### What a relief it was when the boulders suddenly disappeared, giving way to a stretch of plain where the only obstacles were clumps of bushes.  
+  
+relief n. 宽慰，痛苦的缓解或解脱  
+find a temporary relief  
+permanent relief  
+to my great relief  
+give immediate relief from pain  
+  
+give way to sth.  
+1. 被...代替  
+    Steam trains gave way to electric trains.  
+    Winter gave way to spring.  
+    The storm gave way to bright sunshine.  
+2. 让路，向...屈服  
+Drivers must give way to cyclists.  
+We must not give way to their demands.  
+  
+stretch n. an area of land or water, esp. one that is long and narrow.  
+  
+stretch of ...  
+a stretch of plain  
+a narrow stretch of water  
+a beautiful stretch of field  
+  
+clump n. a group of trees, bushes ,or other plants growing very close together.  
+  
+a clump of trees / bushes / flowers / grass  
+  
+### But there was worse to come.  
+worse n. [U]something worse  
+I'm afraid there is worse to come.  
+We thought the situation was bad, but worse was to follow.  
+  
+"What about the bride's dress - wasn't it appalling?" 
+"I don't know, I've seen worse."  
+
+### Just ahead of us there was a huge fissure.  
+fissure n. long deep crack in rock or in the earth  
+  
+### In response to renewed pleadings, Bruce stopped.  
+in response to ...  
+The president stepped down in response to public pressure.  
+  
+Oddly shaped forms that are suspended from the ceiling and move in reponse to a gust of wind are quite familiar to everybody.  
+  
+### Though we all got out to examine the fissure, he remained in the car.  
+  
+get out  
+get out of a car / taxi    
+get in  
+get into a car / taxi  
+  
+get on  
+get on a bus / train / ship / plane    
+get off  
+  
+### We informed him that the fissure extended for fifty yards and was two feet wide and four feet deep.  
+  
+inform sb. of / about sth.  
+inform sb. that  
+  
+extend v. (时间或空间)延伸  
+The Sahara Desert extends for miles.  
+The show had been extended for another six weeks.  
+  
+### Even this had no effect. Bruce went into a low gear and drove at a terrifying speed, keeping the front wheels astride the crack as he followed its zigzag course.  
+  
+automatic / manual gear  
+Helen changed gear / gears as she approached the intersection (路口).  
+  
+go / move / shift into ... gear  
+I went / moved / shifted into fourth gear when I got onto the highway.  
+  
+at / with great speed [U].  
+at a speed of 60 mph.  
+  
+astride prep. with one leg on each side of sth.  
+She sat proudly astride her new motorbike.  
+The town lies astride a river.  
+
+zigzag adj. a pattern that looks like a line of z's joined together  
+a zigzag path along the cliff.  
+  
+### Before we had time to worry about what might happen, we were back on the plain again.  
+  
+### Bruce consulted the map once more and told us that the village was now only 15 miles away.  
+  
+### Our next obstacle was a shallow pool of water about half a mile across / wide.  
+  
+a nice cup of tea  
+a beautiful stretch of field  
+a stagnant 停滞的 pool of water  
+a shallow 浅的 poll of water
+For most of them 50 pence is a small price to pay for a nice big bar of chocolate.  
+  
+### Bruce charged at it, but in the middle, the car came to a grinding halt.  
+  
+charge at... 朝...猛冲  
+Suddenly the bear charged at us.  
+He charged at me with his fists flying.  
+  
+come to a stop / halt / standstill  
+  
+It came to a stop outside the jeweler's.  
+  
+grind v. 研磨，摩擦
+come to a grinding halt  
+  
+come to an end / a close  
+come to a decision / conclusion / agreement  
+  
+### A yellow light on the dashboard flashed angrily and Bruce cheerfully announced that there was no oil in the engine!  
+  
+flash angrily  
+Sparks were emitted from small black boxes and red lamps flashed on and off angrily.
