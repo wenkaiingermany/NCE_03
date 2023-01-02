@@ -1,5 +1,5 @@
 ### Who's who  
-hoax n. a kind of practival joke in which someone makes people believe something that is not true  恶作剧  
+hoax n. a kind of practical joke in which someone makes people believe something that is not true  恶作剧  
   
 play a joke / trick on sb.  
 make a fool of sb. 捉弄  
@@ -85,3 +85,75 @@ There was a hint of irony / sarcasm in her voice.
 the irony of fate  
 It's ironic that she became a teacher --she used to hate school.  
 Ironically, his cold got better on the last day of his holiday.  
+  
+e -> *e  
+  
+who's who 谁是谁(名字，职务)  
+You'll soon get to know who's who in the company.  
+  
+which is which  
+The twins are so alike that I can't tell which is which.  
+  
+When Scarlet returned to the farm, the old maidservant began to tell her who married whom, who had what children and so on.  
+  
+### It has never been explained why university students seem to enjoy practical jokes more than anymore else.  
+  
+It has never been explained why Maya civilization vanished from the earth.  
+  
+Why people are prepared to tolerate a four-hour journey each day for the dubious 可以的 privilege of living in the country **is beyong me**.  
+why ... is beyong me  
+  
+Why Jane was prepared to marry such a lazy-bones is beyong me.  
+  
+**It has always been a mystery to me why** city dwellers, who appreciate all these things, obstinately pretend that they would prefer to live in the country.  
+  
+It has always been a mystery to me why John obstinately pretends that he would prefer classical music.  
+  
+I was shocked when I heard you'd finished your research project a whole month early.  
+How I managed to do it is still a mystery to me.  
+  
+Whether the whole universe does so **is a moot point at present**.  
+  
+Whether ... is a moot point at present  
+Whether building more roads reduces traffic congestion is a moot point at present.  
+  
+It has never been explained why people who live in Mediterranean seem to enjoy eating octopus more than anymore else.  
+  
+### Students specialize in a particular type of pratical joke: the hoax.  
+specialize in ... 专门研究...  
+specialized adj. 专业的  ~ knowledge, ~ labour/labor  
+  
+So great is our passion for doing things for ourselves, that we are becoming increasingly less dependant on specialized labour.  
+  
+a particular type of pratical joke  
+pratical jokes of a particular type  
+  
+**The more expensive kind of antique shop** where rare objects are beautifully displayed in glass cases to keep them free from dust **is** usually a forbidding place.  
+  
+**Antique shops of the more expensive kind** ... **are** ...  
+  
+### Inviting the fire brigade to put out a non-existent fire is a crude form of deception which no self-respecting student would ever indulge in.  
+  
+put out = extinguish 扑灭  
+put out / extinguish the fire / cigarette / light  
+  
+smother 压灭  
+quench  浇灭  
+blow out 吹灭  
+
+However, boxing was very **crude**, for there were no rules and a prize-fighter could be seriously injured or even killed during a match.  
+  
+form n. a type of sth.  
+form of ...  
+a severe form of cancer  
+different forms of government  
+  
+no self-respecting ... would do sth.  
+No self-respecting doctor would refuse to treat a sick person.  
+No self-respecting government would yield to terrorists.  
+
+Cheating in examinations is disgraceful behavior which no self-respecting student would ever indulge in.  
+  
+### Students often create amusing situations which are funny to everyone except the victims.  
+  
+Students often create funny situations which are amusing to / amuse everyone except the victims.  
