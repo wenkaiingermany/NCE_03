@@ -157,3 +157,120 @@ Cheating in examinations is disgraceful behavior which no self-respecting studen
 ### Students often create amusing situations which are funny to everyone except the victims.  
   
 Students often create funny situations which are amusing to / amuse everyone except the victims.  
+  
+### When a student recently saw two workmen using a pneumatic drill outside his university, he immediately telephoned the police and informed them that two students dressed up as workmen were tearing up the road with a pneumatic drill.  
+  
+telephone the police  
+He tole him he had better return it or he would call the police.  
+At first, she decided to go to the police, but ...  
+Mrs. Ramsay was not to inform the police and had to pay $1,000.  
+  
+inform sb. of sth.  
+inform sb. that.  
+  
+dress (sb.) up as ...  
+She intended to dress up as a ghost ...  
+He added that a student had dressed up as a policeman ...  
+They dressed him up as gorilla.  
+  
+disguise sb. as ...  
+He disguised himself as a dustman.  
+  
+disguised as ...  
+Alfred the Great acted as his own spy, visiting Danish camps disguised as minstrel.  
+  
+... informed them that two students disguised as workmen were tearing up the road with a pneumatic drill.  
+  
+tear up sth. 扒开; 撕碎  
+The plumbers tore up the road to lay a new water main.  
+He tore up the letter with anger.  
+  
+tear  
+The child's misery tore my heart.  
+  
+tear sth. in half / two  
+tear sth. to pieces  
+tear sth. away  
+In August, she was struck by a very heavy storm during which her rudder was torn away.  
+  
+### As soon as he had hung up, he went over to the workmen and told them that if a policeman ordered them to go away, they were not to take him seriously.  
+  
+as soon as ...  
+immediately / directly ...  
+the moment ...  
+on / upon ...  
+no sooner ... than ...  
+hardly / barely / scarcely ... when / before ...  
+  
+Immediately / Directly he had hung up, ...  
+The moment he had hung up, ...  
+On / Upon hanging up, ...  
+He had no sooner hung up than he went over to ...  
+No sooner had he hung up than he went over to ...  
+Hardly had he hung up when he went over to ...  
+  
+hang up  
+You hang up hurriedly and attend to baby, crockery, etc.  
+  
+put the phone down  
+slam the phone down  
+get cut off  
+  
+He's seen me! He's coming over!  
+  
+Can you come over for dinner tonight?  
+I'm up to my ears in work, so I'll have to **take a rain check**.  
+  
+"Hello. This is Richard Stewart. My wife, Marilyn Stewart, is a member of your program. I'd like to come to the ten o'clock advanced class this morning."  
+"Oh, fine, fine. Be here a few minutes early. You need to complete some forms before the class."  
+"Thanks, I'm on my way over."  
+  
+be to do (fml.) 四种用法  
+1. 打算 I'm to see her tomorrow.  
+2. 命令 You're to be back by 10 o'clock.  
+        No one is to leave the building.  
+3. 能够 How am I to pay such a debt?  
+        We Chinese people are not to be bullied.  
+4. 应该 Such men are to be pitied rather than despised.  
+        Some books are to be tasted, others to be swallowed, and some few to be chewed and digested.  
+  
+### He added that a student had dressed up as a policeman and was playing all sorts of silly jokes on people.  
+add v. 补充说  
+Then I added with a smile, 'It's a strage mixture I make myself.'  
+  
+When he received a very rude reply from one of the workmen, he **threaten**ed to remove them by force.  
+  
+At this, the police **point**ed **out** ironically that this would hardly be necessary as the men were already under arrest.  
+
+However, as the evidence began to accumulate, experts from the Zoo felt obliged to investigate, for the descriptions given by people who **claim**ed to have seen the puma were extraordinarily similar.  
+  
+It immediately ran away when she saw it, and experts **confirm**ed that a puma will not attack a human being unless it is cornered.  
+  
+Several people **complain**ed of 'cat-like noises' at night and a businessman on a fishing trip saw the puma up a tree.  
+  
+..., as one of them **put it** 'ate like kings'.  
+I don't know how to put it.  
+  
+The writer **state**d that Rastus was in safe hands ...  
+  
+She **explain**ed that Rastus was very dear to her.  
+  
+He was still mumbling (**mumble**) something about hospitals at the end of the party when he slipped on a piece of ice and broke his left leg.  
+  
+When my wife **nag**ged me to do something about it, I told her that either I would have to buy a new mower or let the grass grow.  
+  
+play a joke / trick on sb.  
+One night, the gaoler decided to play a joke on his colleague to find out if, after so many performances, he had managed to learn the contents of the letter by heart.  
+  
+all sorts / kinds / types of sth.  
+She has to deal with all kinds of complaints.  
+  
+### Both the police and the workmen were grateful to the student for this piece of advance information.  
+  
+be thankful / grateful / obliged / indebted to sb. for sth.  
+I'm thankful to you for your help.  
+I'm much grateful to you for your advice.  
+I'm deeply obliged to you for your encouragement.  
+I'm most indebted to you for this piece of advance information.  
+I appreciate your help. 
+I own you (one).  
