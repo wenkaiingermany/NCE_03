@@ -274,3 +274,109 @@ I'm deeply obliged to you for your encouragement.
 I'm most indebted to you for this piece of advance information.  
 I appreciate your help. 
 I own you (one).  
+  
+### The student hid in an archway nearby where he could watch and hear everything that went on.  
+  
+archway  
+arcade  
+17-Arch Bridge  
+Arch of Triumph  
+  
+an archway nearby  
+a nearby archway  
+  
+The archway is very near.  
+in the near future  
+a near relative  
+  
+The monks prefer winter to summer for they have more privacy.  
+  
+I spent my summer vacation in the country where I had more privacy.  
+  
+### Sure enough, a policeman arrived on the scene and politely asked the workmen to go away.  
+sure enough 果然  
+Sure enough, Rastus arrived punctually at seven o'clock that evening.  
+  
+on the scene / spot  
+Meanwhich, two other actors, Rockwall Slinger and Merlin Greeves, had carried two large food baskets to a shady spot under some trees.  
+  
+on the sport 当场..., 立即...  
+He would invent fanciful names on the spot.  
+  
+### When he received a very rude reply from one of the workmen, he threatened to remove them by force.  
+  
+receive + n. 受到了..., 得到了..., 遭到了...  
+These young people, who love the peace of mountains, alway receive a warm welcome at St. Bernard's monastery.  
+  
+No creature has received more praise and abuse than the common garden snail.  
+  
+This exhibition received a great deal of attention in the press, for though the pictures were supposed to be the work of famous artists, they had in fact been painted by Dickie.  
+  
+The majority of the patients attending the medical out-patients departments of our hospitals feel that they have not received adequate treatment unless they are able to carry home with them some tangible remedy in the shape of a bottle of medicine, a box of pills, or a small jar of ointment, ...  
+  
+receive support  
+receive good education  
+receive a heavy blow  
+receive a serious injury  
+  
+threaten to do 1. 威胁说...; 2. 有...的危险  
+We keep trying all four methods, but the sheer volume of rubbish we produce worldwide threatens to overwhelm us.  
+  
+### The workmen told him to do as he pleased and the policeman telephoned for help.  
+Come whenever you please.  
+  
+### Shortly afterwards, four more policemen arrived and remonstrated with the workmen.  
+  
+### As the men refused to stop working, the police attempted to seize the pneumatic drill.  
+  
+### The workmen struggled fiercely and one of them lost his temper.  
+  
+lose one's temper 发脾气  
+keep one's temper  
+  
+### He threatened to call the police. At this, the police pointed out ironically that this would hardly be necessary as the men were already under arrest.  
+  
+在英语中，this 和 that 均可前指，但一般只有this可后指  
+He threatened to call the police. At this, the police pointed out ironically that ...  
+  
+Finding that he could not remember a word of the letter either, the gaoler replied: 'The light is indeed dim. sire. I must get my glasses.' With this, he hurried off the stage.  
+  
+To be, or not to be: that is the question.  
+  
+Good friends, good books and a sleepy conscience: this is the ideal life.  
+  
+Of all men's miseries the bitterest is this: to know so much and to have control over nothing.  
+  
+point out  
+Franz poured scorn on the idea, pointing out that his brother had been killed in action during the war.  
+  
+be under arrest  
+be under + n.  
+The car is under repair.  
+The castle is under attack.  
+The subject is under discussion.  
+The matter is under consideration.  
+The patient is under observation.  
+The case is under investigation.  
+The bridge is under construction.  
+The building is under renovation.  
+  
+### Pretending to speak seriously, one of the workmen aksed if he might make a telephone call before being taken to the station.  
+  
+动名词的时态和语态  
+一般时  doing           being done  
+完成时  having done     having been done  
+  
+### Permission was granted and a policeman accompanied him to a pay phone.  
+give / grant (sb.) permission  
+refuse / deny (sb.) permission  
+  
+He asked the teacher if he might make a telephone call. Permission was denied and he had to wait until the class was over.  
+  
+pay phone / pay station 公共电话  
+  
+### Only when he saw that the man was actually telephoning the police did he realize that they had all been the victims of a hoax. 直到才...  
+  
+Only then did he realize that he was mistaken.  
+Only by working hard can we succeed in doing anything.  
+Only after a baby seal is pushed into the sea by its mother will it learn how to swim.
