@@ -124,3 +124,144 @@ headstrong
   
 determinded  
 resolute  
+  
+### The quiet life of the country has never appealed to me.  
+  
+appeal to sb.  
+  
+The idea never appealed to me very much, but one day, after a heavy shower, I happened to be walking in my garden when I noticed a huge number of snails taking a stroll on some of my prize plants.  
+  
+In spite of national differences, certain funny situations have a universal appeal.  
+  
+The quiet life of the country has never attracted me.  
+The quiet life of the country has never intrigued me.  
+The quiet life of the country is not my cup of tea.  
+  
+### City born and city bred, I have always regarded the country as something you look at through a train window, or something you occasionally visit during the weekend.  
+  
+Because / Since I was born and bred in the city, ...  
+Because / Since I was city born and bred, ...  
+  
+regard A as B  
+..., I have always thought of the country as something ...  
+..., I have always considered the country something ...  
+  
+China born and China bred, I have always regarded America as something you watched in Hollywood movies, or something you occasionally visit during holidays.  
+  
+### Most of my friends live in the city, yet they always go into raptures at the mere mention of the country.  
+  
+go into raptures  
+go into ecstasies  
+  
+at the ... of 一...就...  
+On the other hand, your stomach would turn at the idea of frying potatoes in animal fat, ...  
+  
+It is true that during their explorations they faced difficulties and dangers of the most perilous nature, equipped in a manner which would make a modern climber shudder at the thought, ...  
+  
+Most of my friends live in China, yet they always go into raptures at the mere mention of America.  
+  
+### Though they extol the virtues of the peaceful life, only one of them has ever gone to live in the country and he was back in town within / under six months.  
+  
+extol the virtues / benefits of sth.  
+... only one of them has personal experience of living in the country.  
+  
+Though they extol the virtues of life in America, only one of them has ever gone to live there and he was back in China within a mere two years.  
+  
+### Even he still lives under the illusion that country life is somehow superior to town life.  
+  
+be / live under the illusion / delusion that ...  
+Even he is still under the illusion that ...  
+  
+The worst thing about the do-it-yourself game is that sometimes even men live under the delusion that they can do anything, even when they have been repeatedly proved wrong.  
+  
+... town life is somehow inferior to country life.  
+... country life somehow beats town life.  
+... country life somehow has an advantage over town life.  
+  
+Even he still lives under the illusion that American life is somehow superior to Chinese life.  
+  
+### He is forever talking about the friendly people, the clean atmosphere, the closeness to nature and the gentle pace of living.  
+  
+be forever doing sth.  
+be always doing sth.  
+  
+Our vicar is always raising money for one cause of another, but he has never managed to get enough money to have the church clock repaired.  
+  
+be constantly / continually doing sth.  
+keep (on) doing sth.  
+do sth. all the time.  
+  
+He is forever talking about the friendly people, the clean atmosphere, the azure sky and the cheap commodities.  
+  
+### Nothing can be compared, he maintains, with the first cockcrow, the twittering of birds at dawn, the sight of the rising sun glinting on the trees and pastures.  
+  
+compare A with / to B  
+I hate the way you always compare me with your ex-boyfriend.  
+  
+nothing can be compared with ...  
+  
+Nothing can be compared with the sight of the rising sun glinting on Mountain Tai.  
+  
+compared to / with ...  
+Compared to our small flat, Bill's house seemed like a palace.  
+  
+in / by contrast to / with ...  
+In contrast to the hot days, the nights are bitterly cold.  
+  
+in / by comparison to / with ...  
+People who do manual work often receive far more money in comparison with people who work in offices.  
+  
+at dawn 黎明  
+at the break / crack of dawn  
+at sunrise  
+at daybreak  
+  
+at dusk 黄昏  
+at sunset  
+  
+from dawn to dusk  
+  
+### This idyllic pastoral scene is only part of the picture.   
+当 part of 之前没有形容词修饰时，通常不加不定冠词 a.    
+Justice is part of the complex machinery of the law.    
+Memory loss is a normal part of the aging process.  
+  
+### My friend fails to mention the long and friendless winter evenings in front of TV -- virtually (几乎) the only form of entertainment.  
+  
+The real estate agent failed to mention the stuffy and packed mininuses on rough country roads -- virtually the only form of transportation.  
+  
+### He says nothing about the poor selection of goods in the shops, or about those unfortunate people who have to travel from the country to the city every day to get to work.  
+  
+everyday life / necessities  
+  
+### Why people are prepared to tolerate a four-hour journey each day for the dubious privilege of living in the country is beyond me.  
+  
+Such is human nature, that a great many people are often willing to sacrifice higher pay for the privilege of becoming white-collar workers.  
+  
+be beyond sb.  
+be a mystery to sb.  
+beat sb.  
+  
+It has always been a mystery to me why city dwellers, who appreciate all these things, obstinately pretend that they would prefer to live in the country.  
+  
+It is beyond me why ...  
+It is a mystery to me why ...  
+It beats me why ...  
+I cannot understand why ...  
+  
+Why people are prepared to sacrifice higher pay for the dubious privilege of becoming white-collar workers is beyong me.  
+  
+Why people are prepared to tolerate language and cultra berriers, haunting loneliness and acute homesickness for the dubious privilege of living in America is beyong me.  
+  
+### They could be saved so much misery and expense if they chose to live in the city where they rightly belong.  
+  
+save sb. sth. / doing sth.  
+If you lend me some money, it will save me a trip to the bank.  
+If you tell her news, it will save me calling her.  
+  
+rightly adv. for a good reason  
+It was a vicious foul, and the referee rightly removed him from the game.  
+  
+... which they rightly belong to.  
+  
+They could be saved so much misery, inconvenience and endless nostalgia if they chose to live in the land where they rightly belong.  
