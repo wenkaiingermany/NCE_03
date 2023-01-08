@@ -265,3 +265,141 @@ It was a vicious foul, and the referee rightly removed him from the game.
 ... which they rightly belong to.  
   
 They could be saved so much misery, inconvenience and endless nostalgia if they chose to live in the land where they rightly belong.  
+  
+### If you can do without the few pastoral pleaseures of the country, you will find the city can provide you with the best that life can offer.  
+  
+do without sth. 没有...也行  
+If you need my car, I can do without it today.  
+She can't do without candy.  
+  
+go without sth.  
+manage without sth.  
+  
+provide sb. with sth.  
+provide sth. for sb.  
+  
+### You never have to travel miles to see your friends.  
+### They invariably live nearby and are always available for an informal chat or an evening's entertainment.  
+  
+invariably = always  
+  
+be available / free for sth. / to do sth.  
+  
+My professor is always available for a conversation / to talk with his students.  
+  
+be busy  
+be not available  
+be tied up  
+have a previous / prior engagement  
+  
+I appreciate your kind invitation, but I have a previous / prior engagement.  
+  
+### Some of my acquaintances in the country come up to town once or twice a year to visit the theatre as a special treat.  
+  
+go up to the city  
+go down to the country  
+  
+They walked up north.  
+They walked down south.  
+  
+They sailed up the river.  
+They sailed down the river.  
+  
+treat. 难得的乐事  
+be a real / great treat  
+  
+When we were kids, a trip to the beach was a real treat.  
+Her son's visits are a great treat for her.  
+  
+as a special treat  
+We took the kids to the zoo as a special treat.  
+  
+### For them this is a major operation which involves considerable planning.  
+  
+major: important; significant  
+minor: unimportant  
+trivial: insignificant  
+  
+operation: work; activity; action  
+The salvage 打捞 operation had been a complete failure.  
+  
+rescue operation  
+relief operation  
+cleanup operation  
+  
+Studying abroad is a major operation which involves considerable planning.  
+  
+### As the play draws to its close, they wonder whether they will ever catch that last train home.  
+  
+draw to a close / an end / a conclusion  
+come to a close / an end / a conclusion (得出结论)  
+  
+### The city dweller never experience anxieties of this sort.  
+  
+... of this / that sort / kind  
+I can't approve of things of this sort.  
+  
+this / that sort / kind of ...  
+I can't approve of this sort of thing.  
+  
+### The lastest exhibitions, films or plays are only a short bus ride away.  
+be only a short bus ride away  
+be only a stone's throw away  
+be within walking distance  
+be within driving distance  
+be within commuting distance  
+  
+### Shopping, too, is always a pleasure. There is so much variety that you never have to make do with second best.  
+  
+make do sth... 用...凑活  
+John did not have a hammer, so he had to make do with a rock.  
+  
+second best  
+be second only to...  
+The euro has a circulation second only to that of the dollar.  
+  
+be second to none  
+When it comes to singing, John is second to none.  
+  
+### Country people run wild when they go shopping in the city and stagger home loaded with as many of the exotic items as they can carry.  
+  
+run / go wild with delight 
+run / go crazy with delight  
+go into raptures / ecstasies  
+  
+### Nor is the city without its moments of beauty.  
+Nothing is impossible to a willing mind.  
+No one has nothing to offer to society.  
+Nor are men without their moments of frailty. 脆弱  
+  
+### There is something comforting about the warm glow shed by advertisements on cold wet winter nights.  
+  
+shed    shed    shed  
+  
+shed bitter tears  
+shed blood  
+shed light on sth. 揭示  
+These discoveries may shed light on the origins of the universe.  
+  
+on a Monday night (at night)  
+on a sunny afternoon (in the afternoon)  
+  
+### Few things could be more impressive than the peace that descends on deserted city streets at weekends when the thousands that travel to work every day are tucked away in their homes in the country.  
+  
+Few students could be more deligent than she (is).  
+  
+tuck v. 掖进，塞进  
+tuck your trousers into your boots  
+  
+be tucked away: be hidden  
+A group of tiny brick houses is tucked away behind the factory.  
+  
+### It has always been a mystery to me why city dwellers, who appreciate all these things, obstinately pretend that they would prefer to live in the country rather than live in the city.  
+  
+prefer doing to doing  
+prefer to do rather than do  
+  
+It has always been beyong me why ...  
+It beats me why ...  
+  
+They are hypocritical.  
