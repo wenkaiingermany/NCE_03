@@ -94,3 +94,82 @@ The diamond sparkled in the sunlight.
 All that glitters is not gold.  
 Nothing can be compared, he maintains, with the first cockcrow, the twittering of birds at dawn, the sight of the rising sun glinting on the trees and pastures.  
   
+### Cave exploration, or pot-holing, as it has come to be known, is a reletively new sport.  
+  
+Football, or soccer, as it is sometimes called, is very popular in the world.  
+  
+As: 关系代词
+Things can go wrong on a big scale, as a number pf people recently discovered in Parramatta, a suburb of Sydney.  
+  
+As the Commading Officer explained later, on half of the station did not know what the other half was doing!  
+  
+as: 引导方式状语  
+The problem, as I see it, is no big deal.  
+The author was brought up in a small village, as it is recounted in some of his stories.  
+  
+Future historians will be in a unique position when they come to record the history of our own times.  
+  
+He soon made a name for himself and came to be known to the Italians as Giovanni Acuto.  
+  
+A body came to be found under the bridge.  
+  
+H1N1 flu, or swine flu, as it has come to be known, is a highly contagious but preventable, controllable and curable diesease.  
+  
+### Perhaps **it is** the desire for solitude or the chance of making an unexpected discovery **that** lures people down to the depths of the earth.  
+  
+desire for ...  
+appetite for ...  
+lust for ... 性欲   
+longing for ... 渴望  
+yearning for ...  
+craving for ...  
+hunger / thirst for ...  
+  
+the depths of the earth  
+the depths of the ocean  
+the depths of the space  
+the depths of the forest  
+the depths of despair  
+  
+It is the desire for knowledge that lures him to the scientific world.  
+  
+### It is impossible to give a satisfactory explanation for a pot-holer's motives.  
+  
+give a satisfactory / convincing / logical / ... / explanation for sth.  
+  
+defy explanation 无法解释  
+  
+owe sb. an explanation  
+  
+It has never been explained why Maya civilization vanished from the earth.  
+
+It is impossible to give a satisfactory explanation for the disappearance of Maya civilization.  
+  
+### For him, caves have the same peculiar fascination which high mountains have for the climber.  
+  
+have a / an peculiar / extraordinary / unfailing fascination for ...  
+  
+Mars has an extraordinary fascination for would-be voyagers.  
+  
+Cats have an unfailing fascination for most people.  
+  
+For him, books have the same peculiar fascination which cosmetics have for his wife.  
+  
+Antique shops exert a peculiar fascination on a great many people.  
+  
+exert a ... fascination on sb.  
+have a ... fascination for sb.  
+  
+Stamp collection exerts a peculiar fascination on me.  
+Stamp collection has a peculiar fascination for me.  
+  
+### They arouse instincts which can only be dimly understood.  
+  
+dim / dimly: 昏暗的/地， 朦胧的/地  
+Then, squinting his eyes, he said: 'The light is dim. Read the letter to me'.  
+  
+sth. can only be dimly understood  
+it is impossible to give a satisfactory explanation for sth  
+  
+His behavior can only be dimly understood.  
+It is impossible to give a satisfactory explanation for his behavior.  
