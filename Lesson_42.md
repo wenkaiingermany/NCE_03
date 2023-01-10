@@ -173,3 +173,135 @@ it is impossible to give a satisfactory explanation for sth
   
 His behavior can only be dimly understood.  
 It is impossible to give a satisfactory explanation for his behavior.  
+  
+### Exploring really deep caves is not a task for the Sunday afternoon rambler.  
+  
+Horses are useful animals.  
+The horse is a useful animal.  
+A horse is a useful animal.  
+  
+... is not a task for sb. 不是某人所能胜任的  
+Studying abroad is not a task for the lazy-bones.  
+Being a good husband is not a task for the playboy.  
+  
+### Such undertakings require the precise planning and foresight of military operations.  
+  
+require the precise planning and foresight of ...  
+Speculation in stocks requires the precise planning and foresight of professional investor.  
+  
+For them this is a major operation which involves considerable planning.  
+  
+Studying abroad is a major operation which involves considerable planning.  
+  
+### It can take as long as eight days to rig up rope ladders and to establish supply bases before a descent can be made into a very deep cave.  
+  
+The wound will take a long time to heal.  
+It takes two people to make a quarrel.  
+  
+You're an idiot!  
+It takes one to know one!  
+  
+Anyone can be passionate, but it takes real lovers to be silly.  
+  
+It takes stamina to be a long-distance runner.    
+It takes a lot of courage to stand up to the boss.    
+It takes a lot of patience to take care of a disabled child.    
+rig up: to make sth. quickly out of whatever you can find.  
+  
+They rigged up a shelter using a sheet and some branches.  
+  
+make a descent = descend  
+  
+### Precautions of this sort are necessary, for it is impossible to foretell the exact nature of the difficulties which will confront the pot-holer.  
+  
+precaution n. 预防措施  
+fire / safety / security / sanitary precautions  
+take precautions  
+The government took precautions to prevent the spread of the disease.  
+  
+take measures  
+take effective / drastic measures  
+  
+confront / face sb.  
+be confronted / faced with ...  
+  
+### The deepest known cave in the world is the Couffre Berger new Grenoble.  
+known  
+little-known  
+unknown  
+well-known  
+  
+### It extends to a depth of 3,723 feet.  
+extend to a depth of ...  
+The platforms extend to a depth of over 100 feet under the sea.  
+  
+rise to a height of ...  
+Above the surface of the water, the towers rise to a height of nearly 700 feet.  
+  
+be / stand ... high / tall  
+be ... deep / in depth  
+be ... long / in length  
+be ... wide / across / in width  
+  
+### This immense chasm has been formed by an underground stream which has tunneled a course through a flaw 裂缝 in the rocks.  
+  
+tunnel n->v.  
+  
+### The entrance to the cave is on a plateau in the Dauphine Alps.  
+  
+plateau  
+the Qinghai-Tibet Plateau  
+  
+plain  
+the North China Plain  
+  
+basin  
+the Tarim Basin  
+  
+savannah 热带亚热带的大草原  
+prairie  北美的草原  
+grassland  
+the Inner Mongolian Grassland  
+  
+### As it is only six feet across, it is barely noticeable.  
+  
+### The cave might never have been discovered had not the entrance been spotted by the distinguished 杰出的 French pot-holer, Berger.  
+  
+If + S. + did / were, S. + would / should / could / might + do  
+  
+If + S. + had done, S. + would / should / could / might + have done  
+  
+If + S. + should do, S. + would / should / could / might + do  
+If + S. + did / were to do, S. + would / should / could / might + do  
+  
+If I were you, I would go abroad at once.  
+-> Were I you, I would go abroad at once.  
+  
+If you had come here a little earlier just now, you might have met her.  
+-> Had you come here a little earlier just now, you might have met her.  
+  
+If it should rain tomorrow, you could stay at home.  
+-> Should it rain tomorrow, you could stay at home.  
+  
+If the sun were to rise in the west, I would lend you the money.  
+-> Were the sun to rise in the west, I would lend you the money.  
+  
+### Since its discovery, it has become a sort of pot-holer's Everest.  
+  
+a sort / kind of ... 好像是...  
+We sometimes imagine a desert island to be a sort of paradise where the sun always shines.  
+  
+In spite of this, the Italians regarded him as a sort of hero.  
+  
+They will be able, **as it were**, to see and hear us in action.  
+  
+Since its discovery, it has become, as it were, the pot-holer's Everest.  
+  
+Since its discovery, it has become, so to speak, the pot-holer's Everest.  
+  
+### Though a number of descents have been made, much of it still remains to be explored.  
+  
+remain to be done 有待...  
+Several problems remains to be settled.  
+It remains to be seen how many senior citizens will actually benefit from this new plan.  
+  
