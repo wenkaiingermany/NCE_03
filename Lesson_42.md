@@ -305,3 +305,60 @@ remain to be done 有待...
 Several problems remains to be settled.  
 It remains to be seen how many senior citizens will actually benefit from this new plan.  
   
+### A team of pot-holers recently went down the Gouffre Berger. After entering the narrow gap on the plateau, they climbed down the steep sides of the cave until they came to a narrow corridor.  
+  
+### They had to edge their way along this, sometimes wading across shallow streams, or swimming across deep pools.  
+  
+edge one's way  
+squeeze one's way  
+squeeze through / in / past / by ...  
+  
+make one's way 向某个方向走去  
+The hospital had been bombed and Hans had made his way back into Western Germany on foot.  
+  
+find one's way 到达  
+Very few of the fifty pence pieces and pound coins I have given him have found their way there.  
+  
+They had mysteriously found their way there from the wine cellar!  
+  
+trace / weave / wind one's way 蜿蜒  
+We expected the path to end abruptly, but we found that it traced its way through the trees.  
+  
+force / elbow one's way  
+feel one's way 摸索  
+tunnel one's way  
+  
+### Suddenly they came to a waterfall which dropped into an underground lake at the bottom of the cave.  
+  
+### They plunged into the lake, and after loading their gear on an inflatable rubber dinghy, (they) let the current carry them to the other side.  
+  
+plunge into ...  
+The order to abandon ship was given and hundreds of people plunged into the icy water.  
+  
+### To protect themselves from the icy water, they had to wear special rubber suits.  
+  
+###  At the far end of the lake, they came to huge piles of rubble which had been washed up by the water.  
+  
+### In this part of the cave, they could hear an insistent booming sound which they found was caused by a small waterspout shooting down into a pool from the roof of the cave.  
+  
+She has an adopted son who she says is an orphan.  
+  
+Aleko suddenly acquired a new lamb which he claimed was bought.  
+  
+He's just published an article which I don't think is interesting at all.  
+I met a man whom I thought was a lunatic.  
+  
+### Squeezing through a cleft in the rocks, the pot-holers arrived at an enormous cavern, the size of a huge concert hall.  
+  
+### After switching on powerful arc lights, they saw great stalagmites -- some of them (being) over forty feet high -- rising up like tree-trunks to meet the stalactites suspended from the roof.  
+  
+switch on <-> sth.  
+switch off <-> sth.  
+  
+After switching on the light, I saw sparkling diamonds -- some of them as big as marbles -- contained in a small black box.  
+  
+### Round about, piles of limestone glistened in all the colours of the rainbow.  
+  
+### In the eerie silence of the cavern, the only sound that could be heard was made by water which dripped continuously from the high dome above them.  
+  
+In the eerie silence of the house, the only sound that could be heard was made by wind which blew continuously from a broken window.  
