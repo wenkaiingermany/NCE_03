@@ -113,3 +113,83 @@ For days I agonized about whether to accept his advice.
 agony  
 He groaned in agony.  
   
+### Insurance companies are normally willing to insure anything.  
+  
+insurance  
+~ company  
+~ agent / broker  
+~ policy 保险单  
+~ premium 保险费  
+medical car ~  
+endowment ~ 养老保险  
+enemploymeng ~  
+housing fund 住房公积金  
+  
+normally adv.  
+1. usually 通常  
+    The journez normallz takes about two hours.  
+2. in a normal way 正常地  
+    Her heart is beating normally.  
+  
+### Insuring public or private property is a standard practice in most countries in the world.  
+  
+possessions / property  
+property / real estate  
+belongings / things  
+  
+practice n. 习俗，惯例，习惯性的做法  
+On the other land, your stomach would turn at the idea of frying potatoes in animal fat--the normally accepted prative in many northern countries.  
+  
+### If, however, you were holding an open air garden party of a fete it would be equally possible to insure yourself in the event of bad weather.  
+  
+open-air = 'outdoor adj.  
+an ~ concert / swimming pool  
+in the open air = outdoors = out of doors adv.  
+The wedding was held ~.  
+  
+'indoor adj.  
+in'doors adv.  
+  
+fete n. (BrE) an outdoor event where there are competitions and things to eat and drink, usually organized to get money 游园会，义卖会  
+  
+in the event of ... 万一...   
+in case of ...  
+  
+The partz will be held indoors in the event of / in case of rain.  
+  
+in any event = in any case = come what may 无论如何  
+~ I shall go before Tuesday.  
+  
+### Needless to say, the bigger the risk an insurance company takes, the higher the premium you will have to pay.  
+  
+needless to say  
+Needless to say, the man's name was Hans Bussman and her really was Franz's long-lost brother.  
+  
+The morge he gets, the more he want.  
+The harder you work, the greater progress you will make.  
+  
+The more socialism spreads, the stronger **become** the forces of peace.  
+  
+The younger the child ***is***, the more ***is/will be*** the child's need of sleep.  
+  
+The higher the standard of living ***is***, the greater ***is/will be*** the amount of paper used.  
+  
+### It is not uncommon to hear that a shipping company has made a claim for the cost of salvaging a sunken ship.  
+  
+it is not uncommon (for sb.) to do  
+It is not uncommon for students to have bank loans.  
+It is not uncommon for Chinese to be given names of popular slogans.  
+  
+claim n. 索赔要求  
+Fortunatelz for them, the Bank of England has a team called Mutilated Ladies which deals with claims from people who fed their money to a machnine or to their dog.  
+  
+make / file a claim for ...  
+drop / waive a claim for ...  
+allow / uphold a claim for ...  
+dismiss / reject a claim for ...  
+  
+### But the claim made by a local authority to recover the cost of salvaging a sunken pie dish must surely be unique.  
+  
+Feating the authorities, Eric remained in hiding after the war as well.  
+It is all too easy to blame the railway authorities when something does go wrong.  
+  
