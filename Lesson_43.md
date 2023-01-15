@@ -260,3 +260,140 @@ go down
 go under  
 go to the bottom  
 The tragic sinking of this great liner will always be remembered, for she went down on her first voyage with heavy loss of life.  
+  
+### The pie committee telephoned a local garage owner who (= and the owner) arrived in a recovery truck to salvage the pie dish.  
+  
+a recovery vehicle / truck: one for taking broken-down cars, etc. to a garage  
+  
+### Shivering in their wet clothes, the teenagers looked on while three men dived repeatedly into the water to 'locate the dish.  
+  
+shiver / tremble 颤抖  
+She shivered at the thought of going into the dark house alone.  
+We were trembling with excitement.  
+The bridge trembled as the train sped across it.  
+Suddenly, there was a slight trembling sound from below, adn the captain went down to see what had happened.  
+By this time her legs were beginning to tremble, so she sat down and accepted a cup of very strong tea, while he telephoned the police.  
+  
+**look on**  
+The gaoler looked on eagerly, anxious to see if his fellow-actor had at last learnt his lines.  
+  
+**onlooker**  
+We look on her as a daughter.  
+  
+**locate**  
+They located the right chimney by tapping at the walls and listening for the man's cries.  
+  
+### They had little difficulty in finding it, but hauling it out of the water proved to be a serious problem.  
+  
+have difficulty / trouble (in) doing sth.  
+hava a hard time doing sth.  
+  
+She had a hard time writing the dear John letter.  
+  
+### The sides of the dish were so smooth that it was almost impossible to attach hawsers and chains to the rim without damaging it.  
+  
+hawser n. (船上的)粗缆绳  
+  
+### Eventually (最终) chains were fixed to one end of the dish of the dish and a powerful winch was put into operation.  
+fix sth. to / on sth.  
+The shelves should be fixed to the wall with screws.  
+  
+winch n. 绞车, 卷扬机  
+  
+put / bring sth. into operation 开动,实施,使生效  
+It's time to put our plan into operation  
+New legislation will be brought into operation in January.  
+  
+### The dish rose to the surface and was gently drawn towards the cannal bank.  
+  
+gently adv. carefully, without a lot of force or sudden change in movement  
+  
+Frank gently lifted the crockery out of the box and suddenly noticed a miniature painting at the bottom of the packing case.  
+  
+### For one agonizing moment, the dish was perched precariously on the bank of the canal, but it suddenly overbalanced and slid back into the water.  
+  
+moment n. 
+1. a particular point in time  
+Just at that moment there was a knock on the door.  
+2. a very short period of time  
+I'll come back to that point in a moment.  
+It was quiet for a moment, then Rae spoke.  
+'I don't understand,' said Lucy after a moment.  
+  
+**perch**  
+be perched on ...  
+The path led to a tiny village (which was) perched on the steep sides of a mountain.  
+  
+**precarious**  
+a precarious future  
+He is in precarious health.  
+They lived precariously on the income from a few small investments.  
+  
+overbalance v. 失去平衡  
+  
+### The men were now obliged to try once more.  
+be / feel obliged to do sth.  
+However, as the evidence began to accumulate, experts from the Zoo felt obliged to investigate, ...  
+  
+He had been obliged to join the army during the Second World War.  
+  
+### This time they fixed heavy metal clamps to both sides of the dish so that they could fasten the chains.  
+  
+clamp n. device for holding things tightly together, usu. by means of a screw 夹具，夹钳  
+  
+### The dish now had to be lifted vertically because one edge was resting against the side of the canal.  
+  
+rest (sth.) on / against sth.  
+She stood three feet high and her hands rested on her hips.  
+  
+### The winch was again put into operation and one of the men started up the truck.  
+start (sth. <->) up  
+if an engine, car etc, starts up, or you start it up, it begins working  
+  
+The driver got back into the car and started up.  
+Rory started up the engine and got the vehicle moving.  
+  
+### Several minutes later, the dish was successfully hauled above the surface of the water.  
+  
+### Water streamed in torrents over its sides with such force that it set up a huge wave in the canal.  
+  
+torrent n. 洪流  
+in torrents  
+The rain came down in torrents.  
+  
+current  
+stream  
+trickle  
+  
+The trickle became a stream; the stream has now become a torrent.  
+  
+such ... that ...  
+He wanted to buy a $300 watch for his wife, but he was in such a bedraggled condition that an assistant refused to serve him.  
+  
+set up 造成，导致  
+It is as if a single unimportant event set up a chain of reactions.  
+  
+### There was a danger that the wave would rebound off the other side of the bank and send the dish plunging into the water again.  
+  
+there is / was a danger that ...  
+This greatly reduced the speed of the ship, for there was a danger that if she travelled too quickly, this rudder would be torn away as well.  
+  
+there is always hope that ...  
+there is no denying that ...  
+there is no doubt / questin that ...  
+there is every likelihood that ...  
+there is little likelihood that ...  
+there is no shortage of ...  
+there is an element of truth in ...  
+there is a good deal of truth in ...  
+  
+rebound from / off ... 从...反弹  
+The ball rebounded from / off the goalpost and Owen headed it in.  
+  
+send ... doing 使...突然移动  
+A fire in the casino sent people fleeing for safety.  
+A careless step sent rocks tumbling down on the climbers below.  
+  
+### Be working at tremendous speed, the men managed to get the dish on to dry land before the wave returned.  
+  
+She stands on dry land and is visited by thousands of people each year.  
