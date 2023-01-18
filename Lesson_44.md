@@ -157,3 +157,116 @@ As we were walking past a shop, he held a diamond firmly against the window and 
   
 He hit me on the nose.  
 He hit me in the face.  
+  
+### Inevitably you arrive at your destination almost exhausted.  
+  
+inevitably adv. 必然，不可避免  
+Inevitably the repair job was not quite so simple.  
+  
+inevitable adj.  
+Those who make peaceful revolution impossible will make violent revolution inevitable.  
+  
+sth. can't be helped  
+  
+--I don't know how I managed to break that platter. I'll be more than happy to buy you a new one.  
+--Forget about it. Some things just can't be helped.  
+  
+..., you will arrive at your destination fresh and uncrumpled.  
+  
+When I got home, I was tired and sleepy.  
+I got home tired and sleepy.  
+  
+### Long car journeys are even less pleasant, for it is quite impossible even to read.  
+  
+### On motorways you can, at least, travel fairly safely at high speeds, but more often than not, the greater part of the journey is spent on roads with few service stations and too much traffic.  
+  
+motorway    expressway      freeway  
+  
+more often than not = as often as not 通常  
+  
+More often than not, the arguments could have been avoided.  
+  
+all too often 不愉快的事经常发生  
+All too often, parents leave their children home alone.  
+  
+every so often = sometimes  
+She still calls me every so often.  
+  
+petrol / service station    gas station  
+  
+Meanwhile, the traffic piled up behind.  
+  
+Some of my acquaintances in the coutry come up to town once or twice a year to visit the theatre as a special treat, but more often than not, the greater part of the journey is spent on roads with few service stations and too much traffic.  
+  
+### By comparison, ferry trips or cruises offer a great variety of civilized comforts.  
+  
+by / in comparison  
+pale in / by comparison 相形见绌  
+  
+I thought I was badly treated but my experiences pale in comparison with yours.  
+  
+by / in contrast  
+A run-down watch is still a watch and can be rewound. An odl watch, by contrast, becomes so worn and unreliable that it eventually is not worth mending.  
+  
+compared with / to  
+in / by comparison with / to ...  
+in / by contrast with / to ...  
+  
+comforts n. 使人觉得舒适的事物  
+  
+hotels with all the modern comforts  
+After the trip, it was nice getting back to a few home comforts.  
+  
+### You can stretch your legs on the spacious decks, play games, meet interesting people and enjoy good food -- always assuming, of course, that the sea is calm.  
+  
+stretch one's legs  
+take / have / go for a walk / stroll  
+  
+He usually takes a short walk in the evenings and is always home by seven o'clock.  
+  
+The idea never appealed to me very much, but one day, after heavy shower, I happened to be walking in my garden when I noticed a huge number of snails taking a stroll on some of my prize plants.  
+  
+One wants to meet like-minded collectors, ...  
+  
+assuming (that) ...  
+1. 以为  
+2. 假定  
+Assuming that his family had been killed during an air raid, Hans settled down in a village fifty miles away where he had remained ever since.  
+  
+You'll get there in half an hour -- assuming, of course, that the traffic is not heavy.  
+  
+### If it is not (calm), and you are likely to get seasick, no form of transport could be worse.  
+transport / transportation  
+public transport / transportation  
+A lot of people object to mobile phones, especially when they are used in public places like restaurants or on public transport.  
+  
+否定词+比较级=最高级  
+  
+Nothing could have been more annoying.  
+No creature has received more praise and abuse than the common garden snail.  
+There is no quicker method of disposing of patients than by giving them what they are asking for.  
+  
+Nothing can be compared, he maintains, with the first cockcrow, the twittering of birds at dawn, the sight of the rising sun glinting on the trees and pastures.  
+  
+But nothing can match them for speed and comfort.  
+  
+Nobody equals / matches him in strength.  
+  
+In English she has no equal in her class.  
+  
+In computer programming, Susan is head and shoulders above the rest of us.  
+  
+### Even if you travel in ideal weather, sea journeys take a long time.  
+  
+### Relatively few people are prepared to sacrifice holiday time for the pleasure of travelling by sea.  
+  
+relatively few / easy / new / minor ...  
+Cave exploration, or pot-holing, as it has come to be known, is a relatively new sport.  
+  
+be prepared to do = be willing / ready to do   
+Why people are prepared to tolerate a four-hour journey each day for the dubious privilege of living in the country is beyound me.  
+  
+sacrifice ... for ...  
+Such is human nature, that a great many people are ofen willing to sacrifice higher pay for the privilege of becoming white-collar workers.  
+  
+Relatively few people are prepared to sacrifice their human dignity for money.  
