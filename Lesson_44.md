@@ -270,3 +270,103 @@ sacrifice ... for ...
 Such is human nature, that a great many people are ofen willing to sacrifice higher pay for the privilege of becoming white-collar workers.  
   
 Relatively few people are prepared to sacrifice their human dignity for money.  
+  
+### Aeroplanes have the reputation of being dangerous and even hardened travellers are intimidated by them.  
+  
+have the reputation of being ...  
+She has the reputation of being a good doctor.  
+Peter has the reputation of being the worst boy in the class.  
+  
+hardened adj. someone who is hardened has had a lot of difficult or unpleasant experiences and is no longer much affected by such things  
+  
+The hardened professional smuggler, on the other hand, is never troubled by such feelings, even if he has five hundred gold watches hidden in his suitcase.  
+  
+### They also have the disadvantage of being an expensive form of transport.  
+  
+have the disadvantage of ...  
+He has the disadvantage of being unable to drive a car.  
+  
+Though she has the twin advantages of wealth and beauty, she doesn't live a happy life.  
+  
+### But nothing can match them for speed and comfort.  
+  
+### Travelling at a height of 30.000 feet, far above the clouds, and at over 500 miles an hour is an exhilarating experience.  
+  
+exhilarating adj. 令人极其兴奋和高兴的  
+  
+There is nothing more exhilarating than to be shot at without result. -- Sir Winston Churchill  
+  
+### You do not have to devise ways of taking your mind off the journey, for an aeroplane gets you to your destination rapidly.  
+  
+They devise hundreds of competitions which will enable us to win huge sums of money.  
+  
+### For a few hours, you settle back in a deept armchair to enjoy the flight.  
+  
+settle v. 舒适地坐到...  
+settle back in a deep armchair  
+We settled in front of the television for the evening.  
+  
+Six hundred years ago, Sir John Harkwood arrived in Italy with a band of soldiers and settled near Florence.  
+  
+Assuming that his family had been killed during an air raid, Hans settled down in a village fifty miles away where he had remained ever since.  
+  
+He had often dreamed of retiring in England and had planned to settle down in the country.  
+  
+The two men quarrelled bitterly and it was clear that the argument could only be settled by a fight.  
+  
+### The real escapist can watch a film and sip champagne on some services.  
+escapist n. 遁世逍遥者，逃避现实生活一心享受的人  
+  
+devour  
+  
+service n. BrE a regular journey made by a bus, train, boat, plane etc to a particular place at a particular time  
+  
+### But even when such refinements are not available, there is plenty to keep you occupied.  
+  
+refinement n. 改进，改良  
+With several refinements your essay would be excellent.  
+  
+occupy vt. 占据(时间，空间)  
+A little later, a man came along with a biscuit which occupied the whole boot of his car.  
+  
+keep sb. occupied  
+We need something to keep the children occupied.  
+  
+### An aeroplane offers you an unsual and breathtaking view of the world.  
+  
+The West Lake is breathtakingly beautiful.  
+  
+take a ... breath  
+He took a deep breath to compose himself.  
+  
+### You soar effortlessly over high mountains and deep valleys. You really see the shape of the land.  
+  
+### If the landscape is hidden from view, you can enjoy the extraordinary sight of unbroken cloud plains that stretch out for miles before you, while the sun shines brilliantly in a clear sky.  
+  
+### The journey is so smooth that there is nothing to prevent you from reading of sleeping.  
+  
+prevent sb. from doing  
+In the new society, there is nothing to prevent a child from receiving good education.  
+  
+Despite its immensity, it is both simple and elegant, fulfilling its designer's dream to create 'an enormous object drawn as faintly as possible'.  
+  
+She is so talented and diligent that there is nothing to prevent her from fulfilling her dream.  
+  
+### However you decide to spend your time, one thing is certain: you will arrive at your destination fresh and uncrumpled.  
+  
+Whatever difficulty we may encounter on our road ahead, one thing is certain: we will manage to overcome it so long as we persist.  
+  
+### You will not have to spend the next few days recovering from a long and arduous 艰苦的 journey.  
+  
+recover from ... 从...中恢复  
+recover sth. 恢复了... restore  regain  
+            one's health  
+  recover   one's sight  
+  restore   one's consciousness  
+  regain    one's balance  
+            one's composure  
+  
+recover sth. 重新获得，找回，赚回，补偿  
+But the claim made by a local authority to recover the cost of salvaging a sunken pie dish must surely be unique.  
+  
+Justive is part of the complex machinery of the law. Those who seek it undertake an arduous journey and can never be sure that they will find it.  
