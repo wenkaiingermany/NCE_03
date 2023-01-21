@@ -88,3 +88,74 @@ Small boats loaded with wares sped to the great liner as she was entering the ha
   
 merchandise  
 the ~ on display in the shop window  
+  
+### In democratic countries any efforts to restrict the freedom of the press are rightly condemned.  
+  
+the press / the Press  
+This exhibition received a great deal of attention in the press, for though the pictures were supposed to be the work of famous artists, they had in fact been painted by Dickie.  
+  
+(the) freedom of the press / speech / expression / thought / choice  
+  
+(the) press / academic / political / religious freedom  
+  
+rightly adv. for a good reason 应该  
+They could be saved so much misery and expense if they chose to live in the city where they rightly belong.  
+  
+condemn A for / as B 
+The movie was condemned for its sexism.  
+The terrorist attack was condemned as an act of barbarism and vowardice.  
+  
+In civilized society any act of discrimination against womenis rightly condemned.  
+  
+### However, this freedom can easily be abused. Stories about people often attract far more public attention than political events.  
+  
+attract / receive attention  
+This exhibition received a great deal of attention in the press, ...  
+  
+public / media / press attention  
+Her case attracted a great deal of media attention.  
+  
+far / much / even / still / yet ...  
+slightly / a little / a bit ...  
+  
+These days, people who do manual work often receive far more money than clerks who work in offices.  
+  
+To compensate for his unpleasant experiences in hospital, the man drank a little more than was good for him.  
+  
+### Though we may enjoy reading about the lives of others, it is extremely doubtful whether we would equally enjoy reading about ourselves.  
+  
+it is doubtful if / whether / (that) ...  
+It is doubtful if he will survive.  
+It's doubtful whether the car will last another year.   
+It is doubtful that the missing airmen will ever be found.  
+  
+To ignore this would be a mistake.  
+  
+A picnic would not be any fun without you.  
+  
+Your wife would not be pleased to hear you say that.  
+  
+It would be a shame to stay indoors on such a beautiful day.  
+  
+Though we may enjoy playing jokes on others, it is extremely doubtful whether we would equally enjoy others playing jokes on ourselves (动名词属格).  
+  
+### Acting on the contention that facts are sacred (神圣的), reporters can cause untold suffering to individuals by publishing details about their private lives.  
+  
+act on ...: take action in accordance with or as a result of sth 依照...行事  
+She is acting on the advice of her lawyer.  
+  
+Acting on a sudden impulse, I collected several dozen, put them in a paper bag, and took them to Robert.  
+  
+contention n.(fml.) 观点，论点  
+  
+untold: adj. = immeasurable  
+untold suffering / misery / damage etc.  
+  
+Acting on the contention that children should be obedient to their elders, parents can cause untold suffering to their adult offspring by interfering in their marriages.  
+  
+### Newspapers exert (施加) such tremendous influence that they can not only bring about major changes to the lives of ordinary people but can even overthrow a government.  
+  
+extern ... on ...  
+..., for advertising exerts a subtle influence on us.  
+  
+My wife exerts a lot of pressure on me to make more money.  
