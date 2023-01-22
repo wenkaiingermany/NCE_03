@@ -159,3 +159,112 @@ extern ... on ...
 ..., for advertising exerts a subtle influence on us.  
   
 My wife exerts a lot of pressure on me to make more money.  
+  
+### The story of a poor family that acquired fame and fortune overnight, dramatically illustrates the power of the press.  
+  
+**acquire fame and fortune overnight**  
+  
+With the success of their first record, they acquired fame and fortune overnight.  
+  
+**rise to fame swiftly**  
+Mendoza rose to fame swiftly after a boxing match when he was only fourteen years old.  
+The rise to fame was swift.  
+  
+**make a name for oneself**  
+He soon made a name for himself and came to be known to the Italians as Giovanni Acuto.  
+  
+**make (the) headlines**  
+**hit the headlines**  
+The 9/11 terrorist attack ~ around the world.  
+  
+**be/become a household name/word**  
+Coca Cola is household name/word around the world.  
+Cindy married one of her publishers and became a household name/word.  
+  
+illustrate v. to make the meaning of sth clearer by using examples, pictures, etc.  
+  
+amply / clearly / drametically / graphically / vividly illustrate ...  
+  
+One example may amply illustrate this point.  
+The example of the United States graphically illustrated this point.  
+  
+The example of an obscure shampoo that became a household name overnight, dramatically illustrates the power of advertising.  
+  
+### The family lived in Aberden, a small town of 23,000 inhabitants in South Dekota.  
+  
+a town of 11,000 inhabitants  
+a city of six million inhabitants  
+  
+### As the parents had five children, life was a perpetual struggle against poverty.  
+  
+a perpetual struggle against  
+  
+Speculation in stocks is a perpetual struggle against fear and greed.  
+  
+### They were expecting their sixth child and were faced with even more pressing economic problems.  
+  
+be expecting (a baby) 身怀六甲  
+be pregnant  
+conceive (a baby)  
+be in a family way  
+be knitting a tiny garment  
+  
+When is your baby due?  
+She gave birth to twins.  
+She aborted after 2 months.  
+She is on maternity leave.  
+  
+be faced with ...  
+be confronted with ...  
+..., for then man was faced with a real need to understand something about the seasons.  
+..., for it is impossible to foretell the exact nature of the difficulties which will confront the potholer.  
+..., and no father is confronted with his inability to 'buy' an education for his child.  
+  
+pressing adj. urgent 紧急的  
+~ problem / matter / need etc.  
+a ~ need for housing  
+  
+Poverty is a more pressing problem than pollution.  
+  
+### If they had only had one more child, the fact would have passed unnoticed (形容词作主语补足语).  
+  
+if + S. + had done, S. + would / should / could / might + have done  
+  
+unnoticed adj. without being noticed  
+I tried to slip up the stairs unnoticed.  
+  
+go / pass unnoticed  
+The event went unnoticed.  
+Her death passed unnoticed.  
+The Ombudsman's prompt action at once put an end to an unpleasant practice which might have gone unnoticed.  
+I cannot let this brutality go / pass unnoticed.  
+But for the letter of thanks, the act of kindness might have gone / passed unnoticed.  
+  
+### They would have continued to struggle against economic odds and would have lived in obscurity.  
+  
+odds n. difficulties 困难  
+struggle / fight / battle against the odds.  
+beat / overcome the odds  
+against (all) the odds  
+  
+The hospital's director has been battling against the odds to improve patient care.  
+  
+The South Africans overcame the odds to beat Australia.  
+  
+Against all the odds she achieved her dream of becoming a ballerina.  
+  
+### But they suddenly became the parents of quintuplets, four girls and a boy, an event which radically changed their lives.  
+  
+radically change / alter 彻底改变了...  
+Computers have radically changed our lives.  
+  
+radical changes in education  
+  
+He suddenly won the lottery of ten million dollars, nearly 100 times the amount of his annual income, an event which radically changed his life.  
+  
+### The day after the birth of the five children, an aeroplane arrived in Aberdeen bringing 60 reporters and photographers.  
+  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Atlantic, a huge iceberg was suddenly spotted by a look-out.  
+  
+A man who had broken his right leg was taken to hospital a few weeks before Christmas.  
+  
