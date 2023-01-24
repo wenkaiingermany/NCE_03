@@ -268,3 +268,86 @@ Four days after setting out, while the Titanic was sailing across the icy waters
   
 A man who had broken his right leg was taken to hospital a few weeks before Christmas.  
   
+### The rise to fame was swift. Television cameras and newspapers carried the news to everyone in the country.  
+  
+carry v. to publish or broadcast a news story  
+All the papers carried the story the next day.  
+  
+When Beijing won the right to host the 2008 Olympic Games, Televion cameras and newspapers carried the news to everyone in the world.  
+  
+### Newspapers and magazines offered the family huge sums for the exclusive rights to publish stories and photographs.  
+  
+exclusive adj. available or belonging only to particular people, and not shared  
+  
+They have exclusive rights to market the drug in Africa.  
+  
+The road is for the exclusive use of residents.  
+  
+### Gifts poured in not only from unknown people, but from baby food and soap manufactures who wished to advertise their products.  
+  
+pour in  
+Letters of complaints poured in.  
+Donations poured in for the earthquake victims in China.  
+  
+pour into ... / out of ...  
+Crowds poured into / out of the stadium.  
+  
+advertise a product 宣传产品  
+promote a product 推销产品  
+develop a product  
+launch a product  
+  
+### The old farmhouse the family lived in was to be replaced by a new $500,000 home.  
+  
+### Reporters kept pressing for interviews so lawyers had to be employed to act as spokesmen for the family at press conferences.  
+  
+press (sb.) for sth. 迫切要求，一再敦促  
+
+Reporters pressed (him) for an explanation.  
+I pressed (him) for his consent to our marriage.  
+
+act as / serve as / function as / be used as 当做...来使用  
+
+The box acts as a seat.  
+
+act as ... 临时担任某种工作  
+My brother speaks French -- he can act as interpreter.  
+
+Alfred the Great acted as his own spy, visiting Danish camps disguised as a minstrel.  
+
+press conference 记者招待会  
+
+### While the five babies were still quietly sleeping in oxygen tents in a hospital nursery, their parents were paying the price for fame.  
+
+oxygen tent n. a clear covering put over the head and upper body of an ill person to provide oxygen to help them breathe  
+
+nursery n. a room in a hospital where babies that have just been born are looked after  
+
+pay the price for sth.  
+Being recognized wherever you go is the price you pay for being famous.  
+
+Pollution is the price we pay for an overpopulated, over industrialized planet.  
+  
+be a small / high price to pay for ...  
+Giving up his job was a small price to pay for his children's happiness.  
+  
+Loneliness is a high price to pay for independence in your old age.  
+  
+### It would never again be possible for them to lead normal life.  
+  
+lead / live a ... life  
+They can be friendly and affectinate towards humans, but they lead mysterious lives of their own as well.  
+  
+### They had become the victims of commercialization, for their names had acquired a market value.  
+  
+be / become the victim of ...  
+Only when he saw that the man was actually telephoning the police did he realize that they had all been the victims of a hoax.  
+  
+commercialization n. 商业化  
+commercialize / commercialise vt.  
+  
+market value n. 
+  
+### Instead of being five new family members, these children had immediately become a commodity.  
+  
+instead of ...  
