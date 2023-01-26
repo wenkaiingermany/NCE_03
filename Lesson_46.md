@@ -207,4 +207,99 @@ as / so far as I can see
   
 build: assemble  
   
-
+### Shops cater for the do-it-yourself craze not only by running special advisory services for novices, but by offering consumers bits and pieces which they can assemble at home.  
+  
+cater for  
+  
+Schools often fail to cater for the needs of gifted children.  
+  
+It is a resort that clearly caters for the well-off.  
+  
+craze: fad / mania  
+  
+The college runs summer courses.  
+  
+services for novices  
+the institute for the destitute  
+Haste makes waste.  
+Man proposes, God disposes.  
+Genius is one percent inspiration and ninety-nine percent perspiration.  
+  
+### Such things provide an excellent outlet for pent up creative energy, but unfortunately not all of us are born handymen.  
+  
+outlet n. means of releasing energy, strong feelings, etc. (精力、强烈情感等的)发泄途径   
+outlet for  
+Children need an outlet for their energy.  
+  
+pent-up adj. pent-up feelings or energy have not been expressed or used for a long time (情感、精力等)被压抑的，郁积的  
+He needs an outlet for all that pent-up anger.  
+  
+not + all, every, everything, everyone, both 多表示部分否定  
+  
+All that glitters is not gold.  
+Every machine here is not produced in our plant.  
+Both of the susstances do not dissolve in water.  
+  
+He was born an idiot.  
+He was born idiotic.  
+He died a beggar.  
+He died poor.  
+  
+### Some wives tend to believe that their husbands are infinitely resourceful and can fix anything.  
+  
+tend to do vs. intend  
+Women tend to live longer than men.  
+  
+have a tendency to do  
+Women have a tendency to live longer than men.  
+  
+### Even men who can hardly drive a nail in straight are supposed to be born electricians, carpenters, plumbers and mechanics.  
+  
+drive the posts into the ground  
+  
+She had told him to come straight in if ever she failed to open the door and to leave the bread on the kitchen table.  
+  
+He is a born leader / musician.  
+gifted / talented  
+  
+Picasso was one of the most gifted / talented artists.  
+  
+have a gift / an aptitude for sth.  
+  
+have a gift / an aptitude for languages / painting / music / dancing etc.  
+  
+### When lights fuse, furniture gets rickety, pipes get clogged, or vacuum cleaners fail to operate, some women assume that their husbands will somehow put things right.  
+  
+rickety: shaky  
+  
+somehow adv.  
+1. in some way, or by some means, although you do not know how 以某种方式  
+Don't worry, we'll get the money back somehow.  
+  
+2. for a reason that you do not know or understand 不知怎么搞的，出于未知的原因  
+Somehow, I don't feel I can trust him.  
+..., this one must have been in the possession of a private collector and somehow managed to escape.  
+  
+put ... right / in order 使...恢复正常  
+put ... out of order 使...出故障  
+  
+As the floods had put the telephone out of order, we could not find out how they were managing.  
+  
+### The worst thing about the do-it-yourself game is that sometimes even men live under the delusion that they can do anything, even when they have repeatedly been proved wrong.  
+  
+### It is a question of pride as much as anything else.  
+  
+a question of ...  
+She is so diligent and talented that her success is only a question of time.  
+  
+There would definitely be some job losses; it was just a question of how many.  
+  
+a matter of time  
+a matter of life and / or death  
+a matter of personal taste  
+I can't take the money. It is a matter of principle.  
+  
+as ... as anything (else)  
+It's as easy as anything (else)  
+He's as fat as anything (else)  
+  
