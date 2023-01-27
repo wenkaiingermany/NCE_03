@@ -303,3 +303,103 @@ as ... as anything (else)
 It's as easy as anything (else)  
 He's as fat as anything (else)  
   
+### Last spring my wife suggested that I call in a man to look at our lawn mower.  
+call sb. <-> in: to ask sb. to come and help you with a difficult situation  
+Your father is very sick, You'd better call in a doctor at once.  
+  
+look at ... = examine ...  
+have a look at ...  
+have a close look at ...  
+  
+### It had broken down the previous summer, and though I promised to repair it, I had never got round to it.  
+  
+get round / aroung to sth. / doing  
+  
+I'm having trouble slicing the bread with this knife.  
+Oh, Sorry about that. I haven't gotten around to sharpening it yet.  
+It's dull.  
+  
+### I would not hear of the suggestion and said that I would fix it myself.  
+  
+not hear of sth. 不同意某事  
+I wanted to pay but she wouldn't hear of it.  
+  
+### One Saturday afternoon, I hauled the machine into the garden and had a close look at it.  
+  
+### As far as I could see, it needed only a minor adjustment: a turn of a screw here, a little tightening up there, a drop of oil and it would be as good as new.  
+  
+as far as I can see  
+as good as ...: almost / nearly  
+The injured man is as good as dead.  
+Everything is as good as settled.  
+  
+Thirteen is not as good as one, but it's better than nothing.  
+  
+### Inevitably the repair job was not quite so simple. The mower firmly refused to mow, so I decided to dismantle it.  
+  
+The waiter refused to wait on us.  
+If we see the unutterable, it is unwise to try to utter it, ...  
+We only help those who really need help.  
+  
+dismantle: take sth. apart  
+  
+### The garden was soon littered with chuncks of metal which had once made up a lawn mower.  
+  
+be littered / cluttered with ...  
+The floor was littered / cluttered with broken glass.  
+Even though the road was littered with boulders and pitted with holes, Bruce was not in the least perturbed.  
+  
+litter / clutter  
+Broken glass littered / cluttered the floor.  
+There is always hope that in its labyrinth of musty, dark, disordered rooms a real rarity will be found amongst the piles of assorted junk that litter the floors.  
+  
+### But I was extremely pleased with myself.  
+be pleased with ...  
+Robert was delighted to see me and equally pleased with my little gift.  
+I felt especially pleased with my wonderful bargain -- until I got back to the ship.  
+  
+### I had traced the cause of the trouble.  
+trace: track down 找到  
+  
+The president vowed to trace / track down those responsible for the bombing.  
+  
+### One of the links in the chain that drives the wheels had snapped. After buying a new chain I was faced with the insurmountable task of putting the confusing jigsaw puzzle together again.  
+  
+be faced with ...  
+be confronted with ...  
+China is faced / confronted with the problem of overpopulation.  
+  
+jigsaw puzzle  
+  
+### I was not surprised to find that machine still refused to work after I had reassembled it, for the simple reason that I was left with several curiously shaped bits of metal which did not seem to fit anywhere.  
+  
+for the simple reason that ... = simply because ...  
+  
+People who work in offices are frequently referred to as 'white collar workers' for the simple reason that they usually wear a collar and tie to go to work.  
+  
+leave sb. with sth.  
+  
+Oddly shaped forms that are suspended from the ceiling and move in response to a gust of wind are quite familiar to everybody.  
+  
+fit: go  
+The key won't fit / go in the lock.  
+  
+### I give up in despair.  
+He killed himself in despair.  
+  
+With this faith, we will be able to hew out of the mountain of despair a stone of hope.  
+  
+despair of n./doing  
+The teachers began to despair of him.  
+Mike despaired of ever seeing her again.  
+  
+### The weeks passed and the grass grew.  
+pass: go by / elapse  
+  
+An idle youth, a needy age.  
+  
+### When my wife nagged me to do something about it, I told her that either I would have to buy a new mower or let the grass grow. Needless to say out house is now surrounded by a jungle.  
+  
+As you can imagine, ...  
+  
+### Buried somewhere in deep grass there is a rusting lawn mower which I have promised to repair one day.  
