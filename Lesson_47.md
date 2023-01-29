@@ -90,3 +90,52 @@ clear one's throat
 break wind
 fart  
   
+### Pollution is the price we pay for an overpopulated, over industrialized planet.  
+  
+be the price sb. pay for ...  
+Dust storms are the price we pay for excessive tree felling.  
+The accident is the price he pays for his negligence.  
+  
+be a small price to pay for sth.  
+The lost of money is a small price to pay for the rise in status.  
+  
+be a high price to pay for sth.  
+The sacrifice of health is a high price to pay for success.  
+  
+### When you come to think about it, there are only four ways you can deal with rubbish: dump it, burn it, turn it into something you can use again, attempt to produce less of it.  
+  
+come to do  
+Future historians will be in a unique position when they come to record the history of our own times.  
+  
+there are ... ways / kinds / sorts / types / categories / classes ...  
+  
+There are three categories of accomodation: economical, standard and deluxe.  
+  
+fall into ... categories  
+Shakespeare's plays fall into three categories: tragedies such as Hamlet, comedies such as The Merchant of Venice and histories such as Henry IV.  
+  
+be divided into ... classes  
+Broadly speaking, human beings may be divided into three classes: those who are toiled to death, those who are worried to death, and those who are bored to death.  
+  
+dispose of rubbish / garbage  
+rubbish / garbage disposal  
+  
+recycle it  
+  
+### We keep trying all four methods, but the sheer volume of rubbish we produce worldwide threatens to overwhelm us.  
+  
+the sheer volume of sth.  
+the sheer size of sth.  
+The sheer size of the country makes communications difficult.  
+
+threaten to do  
+They threatened to kill him if he didn't obey.  
+
+Mining operations threaten to destroy our environment.  
+
+promise to do  
+He promised to call me every week.  
+  
+It premises to be warm today.  
+  
+
