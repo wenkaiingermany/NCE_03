@@ -138,4 +138,90 @@ He promised to call me every week.
   
 It premises to be warm today.  
   
+### Rubbish, however, is only part of the problem of polluting our planet.  
+当 part of 之前没有形容词修饰时，通常不加不定冠词 a  
+  
+Justice is part of the complex machinery of the law.  
+  
+This idyllic pastoral scene is only part of the picture.  
+  
+Memory loss is a normal part of the aging process.  
+  
+### The need to produce ever-increasing quantities of cheap food leads to a different kind of pollution.  
+  
+the ever-changing world  
+the ever-growing knowledge  
+the ever-developing ecomony  
+the ever-expanding market  
+the ever-deepening reform  
+the ever-dwindling resources  
+  
+the need to satisfy people's ever-increasing demands for material and cultural life  
+  
+Hundreds of steps lead to the high wall which surrounds the president's palace.  
+  
+This led to yet another angry argument.  
+  
+### Industrialized farming methods produce cheap meat 'products: beef, pork and chicken.  
+  
+pig / cattle / chicken / farming  
+poultry / livestock farming  
+  
+farm  
+farmed fish / shrimp  
+  
+produce cheap meat products  
+assist burglars to burgle  
+  
+live a ... life  
+sing a song  
+breathe one's last breath  
+die a glorious death  
+  
+chicken    lamb    turkey    duck    lobster  
+  
+### The use of pesticides and fertilizers produces cheap grain and vegetables.  
+  
+### The price we pay for cheap food may be already too high: Mad Cow Disease (BSE) in cattle, salmonella in chicken and eggs, and listeria products.  
+  
+The precious information came **at a (heavy) price**.  
+  
+She is determined to have a child at any price.  
+  
+**at the expense of ...**  
+Military strength is often achieved at the expense of a country's economic health.  
+  
+The Roosevelt Administration believed that rebuilding the nation's soil was in the national interest and was not simply a plan to help farmers at the expense of other citizens.  
+  
+BSE: bovine spongiform encephalopathy  
+AIDS: Acquired Immune Deficiency Syndrome  
+  
+cattle  
+people  
+police  
 
+dairy    ~ products / cattle  
+diary    keep a diary  
+angle / angel  
+altitude / latitude  
+aboard / abroad  
+  
+The price we pay for overpopulation may be already too high: unemployment, pollution of all kinds and the ever-increasing crime.  
+  
+### And if you think you'll abandon meat and become a vegeterian, you have the choice of very expensive organically-grown vegerables or a steady diet of pesticides every time you think you're eating fresh salads and vegerables, or just having an innocent glass of water!  
+  
+have the choice of A or B  
+  
+organically-grown vegerables / 'produce  
+  
+environment-friendly products  
+  
+a steady job / income / relationship / boyfiend / girlfriend / decline / increase  
+  
+every time (when) ...  
+whenever ...  
+no matter when ...  
+  
+innocent adj. harmless, innocuous  
+ 
+If you think you'll abandon the car, you have the choice of the extraoodinarily slow buses or the over-crowed subway.  
