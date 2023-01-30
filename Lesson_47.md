@@ -225,3 +225,68 @@ no matter when ...
 innocent adj. harmless, innocuous  
  
 If you think you'll abandon the car, you have the choice of the extraoodinarily slow buses or the over-crowed subway.  
+  
+### However, there is an even more insidious kind of pollution that particularly affects urban areas and invades our daily lives, and that is noise.  
+  
+There is an even more insidious kind of aggression that particularly affects peope's mode of thought and invades local tradition, and that is cultural aggression.  
+  
+### Burglar alarms going off at any time of the day or night serve only to annoy passers-by and actually assist burglars to burgle.  
+  
+go off  
+The alarm clock went off.  
+The bomb went off at midnight.  
+  
+ring  
+The phone / doorbell rang.  
+  
+strike  
+The clock was striking the hours.  
+The clock began to strike twelve.  
+  
+blare  
+The silence was suddenly broken when a large car, with its headlights on and its horn blaring, roared down the arcade.  
+  
+roar / thunder  
+whine  
+  
+serve to do  
+His death serves to remind us how dangerous using drugs can be.  
+  
+serve as ...  
+She serves as an impressive reminder of the great ships of the past.  
+  
+### Car alarms constantly scream at us in the street and are a source of profound irritation.  
+  
+profount = deep  
+  
+..., but uncles and aunts are always a source of extra income.  
+  
+### A recent survey of the effects of noise revealed (surprisingly) that dogs barking incessantly in the night rated the highest form of noise pollution on a scale ranging from one to seven.  
+  
+survey  
+poll  
+opinion poll  
+census (对数量的)调查  the Fifth National Census  
+  
+investigation  
+the investigation of the case / market ...  
+  
+rate  
+The essay rates a low grade.  
+  
+The earthquake measured 8.0 on the Richter scale.  
+  
+The students rates the teachers on a scale of 1 to 5.  
+  
+range from A to B  
+range between A and B  
+  
+The team contained ten players whose ages ranged from 10 to 16 / ranged between 10 and 16.  
+  
+### The survey revealed a large number of sources of noise that we really dislike.  
+  
+### Lawn mowers whining on a summer's day, late-night parties in apartment blocks, noisy neighbors, vehicles of all kinds, especially large container trucks thundering through quiet villages, planes and helicopters flying overhead, large radios carried round in public places and played at maximum volume.  
+  
+apartment block  
+office block  
+  
