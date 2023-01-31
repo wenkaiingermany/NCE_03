@@ -290,3 +290,57 @@ The team contained ten players whose ages ranged from 10 to 16 / ranged between 
 apartment block  
 office block  
   
+### New technology has also made its own contribution to noise.  
+  
+### A lot of people object to mobile phones, especially when they are used in public places like restaurants or on public transport.  
+  
+ob'ject to + n.
+oppose + n.  
+protest (against) + n.  
+'boycott + n.  
+  
+support / back + n.  
+be behind + n.  
+stand by + n.  
+advocate / endorse + n.  
+
+public transport = public transportation = buses, trains etc.  
+  
+### Loud conversations on mobile phones invade our thoughts or interrupt the pleasure of meeting friends for a quiet chat.  
+  
+She is on the phone / computer.  
+  
+She is playing a piece of music on the piano.  
+  
+### The noise pollution survey revealed a rather surprising and possibly amusing old-fashioned source of noice.  
+  
+### It turned out to be snoring. Men were found to be the worst offenders. It was revealed that 20% of men in their mid-thirties snore. 
+  
+mid-thirties  
+early thirties  
+late thirties  
+  
+### This figure rises to a staggering 60% of men in their sixties.  
+  
+rise / increase / jump / soar / rocket / spiral to ...  
+  
+fall / drop / plunge / dive / plummet to ...  
+  
+### Against these figures, it was found that only 5% of women snore regularly, while the rest are constantly woken or kept awake by their trumpeting partners. Whatever the source of noise, one thing is certain: silence, it seems, has become a golden memory.  
+  
+against ...  
+compared to / with ...  
+in / by comparison to / with ...  
+in / by constrast to / with ...  
+  
+A as against B is as C against D  
+  
+The military power of the US, as against that of DPRK, is as the strength of an elephant against that of a mouse.  
+  
+whatever 引导让步状语从句时，常常省略be动词  
+Whatever the source of noise (is), one thing is certain:...  
+After all, whatever her faults (are), she is your mother.  
+The country is always beautiful whatever the season (is).  
+  
+a golden memory  
+a golden opportunity  
