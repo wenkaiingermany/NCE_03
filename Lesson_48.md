@@ -306,3 +306,129 @@ be reluctant / unwilling to to sth.
   
 persuade sb. to do / into doing sth.  
 
+### The path led to a tiny village perched on the steep sides of a mountain.  
+  
+be perched on ...  
+For one agonizing moment, the dish was perched precariously on the bank of the canal, but it suddenly overbalanced and slid back into the water.  
+  
+a house perched on a cliff above the town.  
+  
+### The place consisted of a straggling unmade road which was lined on either side by small houses.  
+  
+straggle v. grow or spread in an irregular or untidy manner 无规则地或散乱地生长或散布    
+  
+Unpainted wooden buildings straggle along the main road out of town.  
+vines straggling over the fences  
+  
+winding  
+tortuous  
+  
+The road is tortuous, but the prespects are bright.  
+  
+line v. form a line sth. 沿某物排成线  
+Tall trees line the road on either side.  
+  
+The road is lined with / by tall trees on either side.  
+  
+### Even under a clear blue sky, the village looked forbidding, as all the hourses were built of grey mud bricks.  
+  
+### The village seemed deserted, the only sign of life being an ugly-looking black goat on a short length of rope tied to a tree in a field nearby.  
+  
+a very modern-looking woman  
+an interesting-looking carved dagger  
+the sorry-looking, blackened figure  
+an ugly-looking black goat  
+  
+Please keep your dog on a leash.  
+  
+Each of the four cables contains 26,108 lengths of wire.  
+  
+She kept it tied to a tree in a field during the day and went to fetch it every evening.  
+  
+The student hid in an archway nearby where he could watch and hear everything that went on.  
+  
+The book is boring, the only interesting part being its cover.  
+  
+The contents of the chest were disappointing, the only valuable find being an interesting-looking carved dagger.  
+  
+### Sitting down on a dilapidated wooden fence near the field, we opened a couple of tins of sardines and had a picnic lunch.  
+  
+### All at once, I noticed that my wife seemed to be filled with alarm.  
+  
+all at once  
+suddenly  
+all of a sudden  
+  
+alarm n. a feeling of fear or worry because sth. bad or dangerous might happen 惊慌，恐慌  
+  
+She looked up in alarm.  
+Scientists have said there is no cause for alarm.  
+  
+be filled with anger / fear / dread / horror / joy / happiness / doubt / alarm / revulsion / admiration / remorse ...  
+  
+Their faces were suddenly filled with fear.  
+I am filled with admiration for your bravery.  
+  
+Knowing that the industrious ant lives in a highly organized society does nothing to prevent us from being filled with revulsion when we find hordes of them crawling over a carefully prepared picnic lunch.  
+  
+### Looking up I saw that we were surrounded by children in rags who were looking at us silently as we ate.  
+  
+### We offered them food and spoke to them kindly, but they remained motionless.  
+  
+offer sb. sth.  
+offer sth. to sb.  
+  
+### I concluded that they were simply shy of strangers.  
+be shy of ... 对...腼腆羞怯; 害怕  
+
+Children are often shy of people they don't know.  
+I'm shy of buying shares, in case I lose money.  
+  
+Once bitten, twice shy.  
+  
+### When we later walked down the main street of the village, we were followed by a silent procession of children.  
+  
+a nice cup of tea  
+a beautiful stretch of field  
+a stagnant pool of water  
+  
+For most of them, 50 pence is a small price to pay for a nice big bar of chocolate.  
+  
+Our next obstacle was a shallow pool of water about half a mile across.  
+  
+### The village which had seemed deserted, immediately came to life  
+  
+come to life: to become more interesting, exciting or full of activity  
+The match finally came to life in the second half.  
+  
+### Faces appeared at windows. Men in shirt sleeves stood outside their houses and glared at us.  
+  
+She smiled.  
+A smile appeared on her lips.  
+Her lips curved into a smile.  
+Her rosy lips curved into a gentle smile.  
+  
+in shirt sleeves / shirt-sleeves: dressed informally without wearing anything, such as a jacket, over a shirt  
+  
+### Old women in black shawls peered at us form doorways. The most frightening thing of all was that not a sound could be heard.  
+  
+### There was no doubt that we were unwelcome visitors.  
+there is no doubt / question that ...  
+There is no doubt that if she had not lost her rudder she would have won the race easily.  
+  
+There is no question that the government knew about the deal.  
+  
+### We needed no further warning.  
+  
+### Turning back down the main street, we quickened our pace and made our way rapidly towards the stream where we hoped the boatman was waiting.  
+  
+quicken one's pace  
+Thinking that she was being followed, she quickened her pace.  
+  
+make one's way 前往某地  
+The hospital had been bombed and Hans had made his way back into Western Germany on foot.  
+  
+嵌入式定语从句 (Embedded Attributive Clause)  
+既修饰先行词又同时做另一个主谓结构的宾语  
+  
+In this part of the cave, they could hear an insistent booming sound which they found was caused by a small waterspout shooting down into a pool from the roof of the cave.  
