@@ -86,5 +86,91 @@ He qualified as a doctor last year.
   
 qualify sb. to do sth.  
 The test qualifies you to drive heavy vehidles.  
-This traning course will qualify you for a better job. 
+This traning course will qualify you for a better job.  
   
+### It is a good thing my aunt Herriet died years ago.  
+  
+It is a good thing (that)... 幸亏...  
+It is good thing that we brought an umbrella.  
+  
+### If she were alive today she would not be able to air her views on her favourite topic of conversation: demostic servants.  
+  
+If + S. + did / were ..., S. + would / shoudl / could / might + do ...  
+  
+air: v. to express your opinions publicly  
+  
+air one's views / opinions / grievances / complaints (on...)  
+  
+In an interview, the singer aired his views on family life.  
+  
+At the meeting everyone will get a change to air their views on the current situation.  
+  
+a topic of conversation / discussion / de'bate  
+  
+a sensitive / controversial topic  
+  
+domestic servant 家仆  
+maidservant  
+public servant 公务员  
+civil servant 文职官员  
+  
+Readers happily accepted the fact that an obscure maidservant was really the hero's mother.  
+  
+The Swedes were the first to recognize that public officials like civil servants, police officers, health inspectors or tax-collectors can make mistakes or act over-zealously in the belief that they are serving the public.  
+  
+### Aunt Herriet lived in that leisurely age when servants were employed to do housework.  
+  
+leisurely adj. & adv. done without hurrying  
+a leisurely bath / meal / stroll  
+Couples strolled leisurely along the beach.  
+  
+do (the) housework = do (the) household chores  
+  
+do the laundry = do the washing  
+  
+do / wash the dishes = do the washing-up  
+  
+### She had a huge, rambling country house called 'The Gables'.  
+  
+### She was sentimentally attached to this house, for even though it was far too big for her needs, she persisted in living there long after her husband's death.  
+  
+attach sth. to sth.  
+The sides of the dish were so smooth that it was almost impossible to attach hawsers and chains to the rim without damaging it.  
+  
+be attached to sb. / sth.: to like someone or something very much, because you have known them or had them for a long time  
+  
+I've never seen two people so attached to each other.  
+I am sentimentally attached to my old guitar.  
+  
+much / far too ...  
+Alice is far too young to get married.  
+  
+slightly / a little / a bit / a little bit too ...  
+I think you're a bit too young to watch this.  
+  
+persist in ... 坚持，执意  
+Why do you persist in blaming yourself for what happened?  
+She persisted in her search for the truth.  
+  
+long after ...  
+long before ...  
+shortly after ...  
+shortly before ...  
+shortly afterwards ...  
+  
+### Before she grew old, Aunt Harriet used to entertain lavishly.  
+  
+entertain v. to invite people to eat or drink with you as your guests, especially in your home  
+  
+I don't entertain very often.  
+Bob and Liz entertained us to dinner last night.  
+  
+lavish adj. very generous 慷概的，大方的  
+  
+entertain lavishly 大宴宾客  
+  
+The Bradfords always entertained lavishly at Christmas.  
+  
+### I often visited The Gables when I was a boy. No matter how many guests were present, the great house was always immaculate.  
+  
+immaculate = spotless adj. very clean and tidy 一尘不染的  
