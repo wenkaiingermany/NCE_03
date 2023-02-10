@@ -264,3 +264,107 @@ be disillusioned with / by ...
   
 be very / extremely / completely / utterly / increasingly / sadly disillusioned with / by ...  
   
+I feel utterly disillusioned by his refusal to take any action.  
+  
+### Bessie worked for Aunt Harriet for three years.  
+  
+### During that time she so gained my aunt's confidence, that she was put in charge of the domestic staff.  
+  
+be in charge of ... 管理...  
+  
+be in the charge of ... / in one's charge 由...管理  
+  
+take charge of...  接管...  
+  
+put sb. in charge of ... 交给某人管理...  
+  
+Peter is in charge of the company.  
+The company is in the charge of Peter / in his charge.  
+Peter will be taking charge of the company next Monday.  
+They put Peter in charge of the company.  
+Peter was put in charge of the company.  
+  
+### Aunt Harriet coudl not find words to praise Bessie's industriousness and efficiency.  
+  
+I cannot find words to describe the beauty of the West Lake.  
+The beauty of the West Lake is beyond words / description.  
+The beauty of the West Lake defies description. (defy v. 使...不可能)  
+The beauty of the West Lake is more than words can describe.  
+  
+industrious adj. 勤劳的  
+industrial adj. 工业的  
+  
+the industrious ant  
+the industrial revolution  
+  
+### In addition to all her other qualifications, Bessie was an expert cook.  
+  
+in addition to ...  
+besides ...  
+apart from ... / aside from ...  
+Apart from an interesting-looking carved dagger, the box was full of crockery, much of it broken.  
+  
+expert adj. showing special skill or knowledge  
+an expert gardener / driver  
+  
+be expert in / at ...  
+Bessie was expert in / at cooking.  
+  
+### She acted the role of the perfect servant for three years before Aunt Harriet discovered her 'little weakness'.  
+  
+play / perform / act (the role / part of)...  
+he played / performed / acted (the role / part of) Othello.  
+  
+play a ... role / part in ... 在...方面发挥...的作用  
+  
+The river which forms the eastern boundarz of our farm has always played an important part in our lives.  
+  
+Looking at his watch, he saw that it was one o'clock, but the bell struck thirteen times before it stopped.  
+  
+weakness 1. 懦弱，软弱 [U]  
+         So let us begin anew -- remembering on both sides that civility is not a sign of weakness, and sincerity is always subject to proof. Let us never negotiate out of fear, but let us never fear to negotiate.  
+         2. 弱点，缺点 [C] vs. strength [C]  
+         In their efforts to persuade us to buy this or that product, advertisers have made a close study of human nature and have classified all our little weaknesses.  
+strengths and weaknesses  
+
+### After being absent from The Gables for a week, my aunt enexpectedly returned one afternoon with a party of guests and instruted Bessie to prepare dinner.  
+  
+be absent from ... 不在...  
+party n. 一群;一队;一组  
+The only regular visitors to the monastery in winter are parties of skiers who go there at Christmas and Easter.  
+  
+prepare / cook / fix dinner  
+  
+### Not only was the meal well below the usual standard, but Bessie seemed unable to walk steadily.  
+  
+not only ... but ...  
+not only ... but also ...  
+not only .... but ... as well / too  
+not only ... as well / too  
+not only ...  
+  
+Not only had the poor man been arrested, but he had been sent to prison as well.  
+  
+well adv. a lot, or to a great degree  相当地，颇为， ...得多  
+well before / after / over / above / below / worth ...  
+  
+I don't know how old he is, but he looks well over forty.  
+  
+Pete left the party well before you got there.  
+The castle is well worth a visit.  
+  
+above / below (the) standard  
+Your work is above / below (the) standard.  
+  
+### She bumped into the furniture and kept mumbling about the guests.  
+  
+bump / run into 1. 撞到...上  
+The car bumped / ran into a big pine.  
+  
+bump / run into 2. 偶遇  
+I happened to bump / run into a friend of mine in the street.  
+  
+mumble v. to say something too quietly or not clearly enough, so that people cannot hear what is said.  
+  
+He was still mumbling something about hositals at the end of the party when he slipped on a piece of ice and broke his left leg.  
+  
