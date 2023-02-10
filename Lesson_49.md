@@ -368,3 +368,42 @@ mumble v. to say something too quietly or not clearly enough, so that people can
   
 He was still mumbling something about hositals at the end of the party when he slipped on a piece of ice and broke his left leg.  
   
+### When she came in with the last course -- a huge pudding -- she tripped on the carpet and the pudding went flying through the air, narrowly missed my aunt, and crashed on the dinning table with considerable force.  
+  
+trip / stumble over / on sth. 在...上绊倒  
+He tripped / stumbled over / on a rock.  
+  
+Chairs and tables went flying into the arcade.  
+  
+The Titanic turned just in time, narrowly missing the immense walk of ice which rose over 100 feet out of the water beside her.  
+  
+### Though this caused great mirth among the guests, Aunt Harriet was horrified.  
+  
+mirth n.[U] (fml.) happiness and laughter  
+Her body began to shake with mirth.  
+That caused considerable mirth among pupils.  
+  
+### She reluctantly came to the conclusion that Bessie was drunk.  
+  
+draw / come to / arrive at / reach a conclusion 得出结论  
+bring ... to a conclusion 使...结束  
+  
+In the nineteenth century, a novelist would bring his story to a conclusion by presenting his readers with a series of coincidences -- most of them wildly improbable.  
+  
+### The guests had, of course, realized this from the moment Bessie opened the door for them and, long before the final catastrophe, had had a difficult time trying to conceal their amusement.  
+  
+The telephone rings and this marks the prelude to an unforeseen series of catastrophes.  
+  
+hava a difficult / hard time doing  
+  
+### The poor girl was dismissed instantly.  
+  
+### After her departure, Aunt Herriet discovered that there were piles of empty wine bottles of all shapes and sizes neatly stacked in what had once been Bessie's wardrobe.  
+  
+... of all shapes and sizes  
+Before long, biscuits of all shapes and sizes began arriving at the factory.  
+  
+### They had mysteriously found their way there from the wine cellar!  
+  
+find one's way 到达...  
+Very few of the fifty pence pieces and pound coins I have given him have found their way there.  
