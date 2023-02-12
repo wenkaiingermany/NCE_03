@@ -177,3 +177,105 @@ be beyond sb. = be a mystery to sb.
 Why people are prepared to tolerated a four-hour journey each day for the dubious privilege of living in the country is beyond me.  
   
 It has always been a mystery to me why city dwellers, who appreciate all these things, obstinately pretend that they would prefer to live in the country.  
+  
+### If we remain inveterate smokers, it is only because we have so often experienced the frustration that results from failure.  
+  
+an inveterate smoker / drinker / gambler  
+old friend  
+regular / patron 老主顾  
+hardened smuggler  
+maidservant  
+  
+it is because ...  
+the reason is that ...  
+..., the only reason is that ...  
+  
+result from ... = be caused by ...  
+result in ... = cause ...  
+  
+### Most of us fail in our efforts at self-improvenment bacause our schemes are too ambitious and we never have time to carry them out.  
+  
+fail to do  
+fail in one's efforts / attempts at ... / to do  
+  
+Latham failed in his efforts / attempts to fly across the English Channel.  
+  
+The archaeologists failed in their efforts to discover the identity of the the reconstructed statue.  
+  
+The archaeologists failed in their efforts / attempts at the identification of the reconstructed statue.  
+  
+scheme n. 1. 计划，方案; 2. 阴谋，诡计  
+schemes and intrigues  
+  
+never / not get round / around to sth. / doing  
+  
+It had broken down the previous summer, and though I promised to repair it, I had never got round to it.  
+  
+carry sth. <-> out 执行，实施  
+We carried out her instructions precisely.  
+  
+### We also make the fundamental error of announcing our resolutions to everybody so that we look even more foolish when we slip back into our bad old ways.  
+  
+fundamental adj. 根本性的  
+fundamental error / mistake / change / difference  
+  
+make the fundamental error of doing sth.  
+He made the fundamental error of despising his enemy.  
+  
+so (that) 作连词时一般来说有两种用法:  
+1. 引导结果状语从句，译为 "所以"，从句谓语动词中一般没有情态动词  
+2. 引导目的状语从句，以为 "以便"，从句谓语动词中多出现情态动词can, could, may, might, should, would  
+  
+It had been purchased by a local authority so that an enormous pie could be baked for an annual fair.  
+  
+In the new country he became absorbed in making a new life for the two of us, so that he gradually ceased to grieve.  
+  
+He was still mumbling something about hospitals at the end of the party when he *slipped* on a piece of ice and broke his left leg.  
+  
+slip into ... to gradually start to be in a bad state or situation  
+  
+slip into debt / unconsciousness ...  
+He had begun to slip into debt.  
+She slipped into unconsciousness and died the next day.  
+  
+### (Being) Aware of these pitfalls, this year I attempted to keep my resolutions to myself.  
+  
+pitfall n. a likely mistake or problem in a situation 易犯的错误，易出现的问题  
+  
+the potential pitfalls of buying a house.  
+  
+keep sth. to oneself = keep sth. secret  
+I keep my live for Helen to myself.  
+  
+### I limited myself to two modest ambitions: to do physical exercises every morning and to read more of an evening.  
+  
+limit oneself to sth.  
+I limit myself to 2 glasses of beer a day.  
+She limits herself to 1,000 calories a day to lose weight.  
+  
+do (phycisal) exercises 锻炼身体  
+  
+of an evening / of a weekend ... = in the evenings / at weekends ...  
+  
+### An all-night party on New Year's Eve provided me with a good excuse for not carrying out either of these new resolutions on the first day of the year, but on the second, I applied myself assiduously to the task.  
+  
+apply onself to sth = work hard at sth.  
+  
+on ... Eve  
+provide sb. with sth.  
+an excuse for (doing) sth.  
+sth. provide sb. with a good excuse for (doing) sth.  
+  
+A sudden illness provided him with a good excuse for not attending the meeting.  
+A long and arduous journey provided me with a good excuse for going to bed early.  
+  
+plead ignorance / illness / a headache / tiredness / insanity  
+  
+either of ... 两个中任何一个  
+each of ... 三个以上中任何一个  
+neither of ... 两个都不  
+none of ... 三个以上都不  
+both of ... 两个都...  
+all of ... 三个以上都...  
+  
+Recently I have been applying myself assiduously to studying English.  
