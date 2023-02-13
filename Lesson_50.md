@@ -279,3 +279,76 @@ both of ... 两个都...
 all of ... 三个以上都...  
   
 Recently I have been applying myself assiduously to studying English.  
+  
+### The daily exercises lasted only eleven minutes and I proposed to do them early in the morning before anyone had got up.  
+  
+propose v. (fml.) to intend to do something 打算  
+  
+propose to do sth.  
+How do you propose to deal with the situation?  
+How do you propose getting home?  
+
+### The self-discipline required to drag myself out of bed eleven minutes earlier than usual was considerable.  
+  
+The self-discipline required to do physical exercises every morning for years on end is considerable.  
+  
+### Nevertheless, I managed to creep down into the living room for two days before anymore found me out.  
+  
+nevertheless / nonetheless / still / all the same / just the same 尽管如此，还是...  
+  
+'You certainly did give me a surprise!' said the vicar.  
+'You've probably woken up everyone in the village as well. Still, I'm glad the bell is working again.'  
+  
+creep v. 蹑手蹑脚地走  
+  
+One bad winter we watched the river creep up the lower meadows.  
+  
+### After jumping about on the carpet and twisting the human frame into uncomfortable positions, I sat down at the breakfast table in an exhausted condition.  
+  
+about / around adv. 各处，到处  
+  
+As there are so many people about, the dogs have to be kept in a special enclosure.  
+  
+twist v. 转动，扭曲，缠绕  
+twist ... into ...  
+  
+We twisted the bed sheets into a rope and escaped by climbing down it.  
+  
+frame n. human or animal body  
+Sobs shook her slender frame.  
+  
+Inevitably you arrive at your destination almost exhausted.  
+  
+### It was this that betrayed me.  
+  
+### The next morning the whole family trooped in to watch the performance.  
+  
+troop v. to walk somewhere together as a group  
+  
+### That was really unsettling, but I fended off the taunts and jibes of the family good-humouredly and soon everybody got used to the idea.  
+  
+unsetting adj. = disturbing  
+unsettle v. = disturb  
+  
+fend sb. / sth. <-> 挡开，躲避开，抵御住  
+  
+taunt = jibe/gibe  
+taunts and jibes  
+aches and pains  
+schemes and intrigues  
+hustle and bustle  
+  
+### However, my enthusiasm waned.  
+  
+wax and wane  
+  
+Dynasties waxed and waned throughout the history.  
+  
+ebb (away)  
+subside  
+  
+ebb and flow  
+  
+However, my enthusiasm ebbed (away).  
+  
+
