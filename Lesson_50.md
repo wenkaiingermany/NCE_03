@@ -349,6 +349,83 @@ subside
   
 ebb and flow  
   
-However, my enthusiasm ebbed (away).  
-  
+However, my enthusiasm ebbed (away) / subsided.  
 
+### The time I spent at exercises gradually diminished.  
+
+di'minish: reduce / decrease  
+
+### Little by little the eleven minutes fell to zero.  
+  
+gradually / slowly / little by little / bit by bit / by degrees  
+  
+fall / drop to ...  
+  
+The temperature drops to -30° and very few people attempt to cross the Pass.  
+  
+plunge / dive to ...  
+  
+### By January 10th, I was back to where I had started from.  
+  
+be back to where ... start from 前功尽弃  
+  
+bring ... back to where ... start from ...  
+  
+A fundamental error brought us back to where we had started from.  
+  
+pick up where we left off  
+After lunch shall we pick up where we left off?  
+  
+### I argued that if I spent less time exhausting myself at exercises in the morning, I would keep my mind fresh for reading when I got home from work.  
+  
+fresh adj. 精神饱满的  
+  
+However you decide to spend your time, one thing is certain: you will arrive at your destination fresh and uncrumpled.  
+  
+keep one's mind fresh  
+  
+A cup of coffee will keep your mind fresh in class.  
+  
+### Resisting the hypnotizing effect of television, I sat in my room for a few evenings with my eyes glued to a book.  
+  
+glue vt. 粘住 n. 胶水  
+be glued to sth.  
+We were glued to the television watching the election results.  
+  
+Resisting the temptation to go to bed, I sat in my study with my eyes glued to 'New Concept English'.  
+  
+### One night, however, feeling cold and lonely, I went downstairs and sat in front of the television pretending to read.  
+  
+### That proved to be my undoing, for I soon got back to my old bad habit of dozing off in front of the screen.  
+  
+be one's undoing  
+Slack defense was the team's undoing.  
+  
+prove to be one's undoing  
+Lack of experience proved to be his undoing.  
+  
+downfall n. 垮台; 失败，垮台的原因    
+Greed led to his downfall.  
+  
+A long-lost brother, who was presumed dead, was really alive all the time and wickedly plotting to bring about the hero's downfall.   
+  
+be one's downfall  
+His vanity (虚荣) was his downfall.  
+  
+prove to be one's downfall  
+  
+An addiction to gambling proved to be her downfall.  
+  
+doze off / nod off  
+  
+take / have a nap  
+I usually take a nap after lunch.  
+  
+### I still haven't given up my resolution to do more reading.  
+  
+### In fact, I have just bought a book entitled *How to Read a Thousand Words a Minute*.  
+  
+### Perhaps it will solve my problem, but I just haven't had time to read it!  
+  
+get round / around to sth. / doing  
+..., but I have never got round / gotten around to reading it.  
