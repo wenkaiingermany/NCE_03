@@ -95,3 +95,74 @@ give immediate relief from pain
   
 What a relief it was when boulders suddenly disappeared, giving way to a stretch of plain where the only obstacles were clumps of bushes.  
   
+### Predicting the future is notoriously difficult.  
+  
+Relieving the problem of overpopulation is notoriously difficult.  
+  
+Giving up a deep-seated bad habit is notoriously difficult.  
+  
+The traffic congestion in Beijing is notoriously serious.  
+  
+### Who could have imagined, in the mid 1970s, for example, that by the end of the 20th century, computers would be as common in people's homes as TV sets?  
+  
+could have done: used to say that something was a possibility in the past, but did not actually happen  
+  
+I could have been killed.    
+He could have escaped, but he chose to stand and fight.  
+  
+from mid July to mid August    
+mid-morning coffee    
+Mid-Autumn Festival    
+a young woman in her mid-twenties    
+midsummer / midwinter  
+on Midsummer Eve  
+  
+in the early 1970s  
+in the mid 1970s  
+in the late 1970s  
+  
+Who could have imagined, in the mid 1990s, for example, that after a mere decade, mobile phones would be as common in China as watches?  
+  
+### In the 1970s, computers were common enough, but only in big bisiness, government departments, and large organizations.  
+  
+They don't know how to run a business.  
+  
+big business n.[U] large and powerful companies in general  
+The party receives most of its financial support from big business.  
+  
+### These were the so-called mainframe machines.  
+  
+so-called adj.  
+1. commonly called  
+They've found the flight recorder, the so-called black box.  
+  
+2. incorrectly called  
+His so-called friends betrayed him.  
+  
+mainframe n. a large powerful computer that can work very fast and that a lot of people can use at the same time.  
+  
+### Mainframe computers were very large indeed, often occupying whole air-conditioned rooms, employing full-time technicians and run on specially written software.  
+  
+indeed adv. used with 'very' and an adjective or adverb to emphasize a statement or description  
+  
+Most of the essays were very good indeed.  
+Thank you very much indeed.  
+  
+air-conditioned  
+air conditioner  
+  
+run v. if a machine or engine runs or you run it, it is working  
+  
+I often run the washing machine more than once a day.  
+Most cars run on unleaded fuel.  
+  
+### Though these large machines still exist, many of their functions have been taken over by small powerful personal computers, commonly known as PCs.  
+  
+take over sth.  
+Military leaders took over the government.  
+  
+be known as ...  
+He soon made a name for himself and came to be known to the Italians as Giovanni Acuto.  
+  
+be commonly known as ...  
+The disease is commonly known as Mad Cow Disease.  
