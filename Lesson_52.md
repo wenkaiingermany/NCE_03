@@ -93,3 +93,148 @@ poisonous
   
 toxic chemicals / substances / gases  
 Carbon monoxide is a colorless, oderless and noxious gas.  
+  
+mud is mud  
+call a spade a spade  
+tell it like it is  
+tell somebody straight  
+I told her straight that she was wrong  
+to be honest / frank  
+frankly  
+To be honest / frank, 
+             Frankly, George isn't very good at the job.  
+
+spade, heart, club, diamond  
+  
+### My cousin, Harry, keeps a large curiously-shaped bottle on permanent display in his study.  
+  
+keep v. have sth. in a particular place  
+Always keep your driving licence in a safe place.  
+George kept a bottle of whiskey under his bed.  
+  
+oddly shaped forms  
+curiously shaped bits of metal  
+She has perfectly shaped figure.  
+  
+heart-shaped  
+pear-shaped  
+V-shaped  
+  
+on display = on show  
+  
+Even people who take no interest in art cannot have failed to notice examples of modern sculpture on display in public places.  
+  
+Her work is on temporary display at the gallery.  
+  
+The locomitive is kept on static display in the National Railway Museum.  
+  
+George keeps a gold medal on permanent display in his study.  
+  
+### Despite the fact that the bottle is tinted a delicate shade of green, an observant visitor would soon notice that it is filled with what looks like a thick greyish substance.  
+  
+despite the fact that ... (fml.)  
+in spite of the fact that ... (fml.)  
+= tough / although / even though / while ...  
+  
+介词 + 名词 + 同位语从句 = 普通从属连词  
+  
+for the reason that ...  
+because of the fact that ...  
+due to the fact that ...  
+on account of the fact that ...  
+= because ...  
+  
+delicate / light adj. 颜色淡的，浅色的  
+dark / deep adj. 颜色深的，深色的  
+bright adj. 颜色亮的，鲜艳的  
+  
+shade n. a particular type of red, green, blue etc. 色度  
+  
+shade of ...  
+a delicate shade of green  
+a bright shade of pink  
+a deep shade of blue  
+
+observant adj. perceptive; eagle-eyed 善于观察的，敏锐的  
+powers of observation 观察力  
+
+greyish (BrE) / grayish(AmE) adj. slightly grey  
+yellowish  
+reddish  
+bluish  
+greenish  
+blackish  
+whitish  
+
+### If you were to ask Harry what was in the bottle, he would tell you that it contained perfumed mud.  
+-> Were you to ask Harry that was in the bottle, he would tell you that it contained perfumed mud.  
+    
+If + S. + should do, S. + would / should / could / might + do  
+If + S. + did / were to do, S. + would / should / could / might + do  
+  
+perfumed adj. pleasant to smell because perfume has been added or used  
+perfumed soap / candles  
+
+### If you expressed doubt or surprise, he would immediately invite you to smell it and then rub some into your skin.  
+  
+rub sth. with sth.  
+A crowd of people gathered round him and a lady rubbed his arm with soap and butter, but George was firmly stuck.  
+  
+rub sth. into sth.  
+  
+rub salt into the wound  
+Rub the cream into your skin.  
+  
+### The brief experiment woudl dispel any further doubts you might have.  
+  
+### The bottle really does contain perfumed mud.  
+  
+### How Harry came into the possession of his outlandish stuff makes an interesting story which he is fond of relating.  
+  
+come into (the) possession of sth. = get sth.  
+On her father's death, she came into possession of a vast fortune.  
+  
+How did the painting come into your possession (= how did you get the painting)?  
+  
+stuff n.[U] (infml.) things  
+  
+I've got some sticky stuff on my shoe.  
+Do you call this stuff beer?  
+  
+be fond of ... having a great liking for ...  
+I've always been very fond of you.  
+John's extemely fond of pointing out other people's mistakes.  
+  
+relate sth. (to do) (向某人) 讲述某事  
+We know instinctively, just as beekeepers with their bees, that misfortune might overtake us if the important events of our lives were not related to it.  
+  
+History does not relate whether his friend accepted his medical help, but in all probability he did.  
+  
+### Furthermore, the acquisition of this bottle cured him of a bad habit he had been developing for years.  
+  
+furthermore  
+further  
+what it more / what's more  
+moreover  
+besides  
+in addition  
+additionally  
+  
+the acquisition of language  
+  
+cure sb.  
+cure a disease  
+cure sb. of a disease  
+  
+heal sb.  
+heal sb. of a disease  
+  
+There is no cure of AIDS.  
+  
+develop / catch / acquire / form / cultivate / foster a habit  
+  
+change / alter a habit  
+correct a habit  
+  
+abandon / give up / drop / discard / kick a habit  
+  
