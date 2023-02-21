@@ -238,3 +238,88 @@ correct a habit
   
 abandon / give up / drop / discard / kick a habit  
   
+### Harry used to consider it a great joke to go into expensive cosmetic shops and make outrageous requests for goods that do not exist.  
+  
+The expensive shops in a famous arcade near Piccadilly were just opening.  
+  
+cosmetics n. [pl.] 化妆品  
+Lipstick and hair conditioner are cosmetics.  
+  
+make-up / makeup n.[U]  
+  
+girls in heavy make-up  
+She doesn't wear makeup.  
+  
+make a ... request for ...  
+make repeated requests for help  
+  
+They have made an urgent request for international aid.  
+  
+make a ... appeal for ...  
+The girl's family have made a public appeal for help to try and catch her killer.  
+  
+### He would invent fanciful names on the spot.  
+  
+would 和 used to do 类似，都可以表示过去习惯性的动作，如: One day in a week he would spend a whole day in silence. 但注意: would 不能用在故事开头，往往在故事开头用used to do, 而后面换为 would to, 如: We used to work in the same office and we would often have coffee together.  
+  
+We are less credulous than we used to be. In the 19th century, a novelist would bring his story to a conclusion by presenting his readers with a series of coincidences -- most of the wildly improbable.  
+  
+do sth. on the spot = do sth. immediately  
+He had to make a decision on the spot.  
+  
+### On entering a shop, he would ask for a new perfume called 'Scented Shadow' or for 'insoluble bath cubes'.  
+  
+on prep. as soon as  
+What was your reaction on seeing him?  
+The curtain went up on the final act of the play and revealed the aristocrat sitting alone behind bars in his dark cell.  
+  
+in prep. during the act or process of ...  
+In the last act, a gaoler would always come on to the stage with a letter which he would hand to the prisoner.  
+  
+In seeking independence, they do not sacrifice their human dignity.  
+  
+insoluble adj. cannot be dissolved; not soluble  
+  
+### In a shop assistant told him she had not heard of it, he would pretend to be considerably put out.  
+  
+put out adj. Br.E. [never before noun] annoyed  
+He seemed a bit put out at not having been invited.  
+  
+### He loved to be told that one of his imaginary products was temporarily out of stock and he would faithfully promise to call again at some future date, but of course he never did.  
+  
+imaginary adj. 虚构的  
+imaginative adj. 富有想象力的  
+  
+temporarily  
+permanently  
+  
+in / out of stock  
+Have you any grey pullovers in stock?  
+I'm sorry, that swimsuit is temporarily out of stock in your size.  
+  
+faithfully adv. 忠诚地，诚恳地  
+He had served the family faithfully for 40 years.  
+Ann faithfully promised never to tell my secret.  
+  
+call v. to stop at a house or other place for a short time to see sb. or do sth.  
+  
+She called for a chat.  
+  
+call in at sth.  
+After crossing the equator, the captain called in at a port to have a new rudder fitted, but by now the Thermopylae was over 500 miles ahead.  
+  
+at a ... date: a time in the past or future  
+The exact details of the plan will be worked out at a later date.  
+The election is scheduled to take place at an unspecified date in the autumn.  
+  
+### How Harry managed to keep a straight face during these performances is quite beyond me.  
+  
+keep a straight face: stop oneself from smiling and laughing  
+Brian looked riduculous in leather trousers, and I was desperately trying to keep a straight face.  
+  
+be beyond sb. to be too difficult for someone to understand  
+Why people are prepared to tolerate a four-hour journey each day for the dubious privilege of living in the country is beyond me.  
+  
+be quite / completely beyond sb.  
+It's quite beyond me why anyone would want to marry him.  
+The system was complicated and completely beyond the learners.  
