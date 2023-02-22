@@ -323,3 +323,152 @@ Why people are prepared to tolerate a four-hour journey each day for the dubious
 be quite / completely beyond sb.  
 It's quite beyond me why anyone would want to marry him.  
 The system was complicated and completely beyond the learners.  
+  
+### Harry does not need to be prompted to explain how he bought his precious bottle of mud.  
+  
+prompt v. to encourage sb. to speak by asking them questions or suggesting words that they could say  
+  
+'And then what happened?' he prompted.  
+  
+The speaker was hesitant and had to be prompted occasionally by the chairman.  
+  
+### One day, he went to na exclusive shop in London and asked for 'Myrolite'.  
+  
+exclusive adj. very expensive, and therefore available only to wealthy people 高级的，高档的  
+  
+an exclusive store / restaurant / neighborhood  
+  
+Newspapers and magazines offered the family huge sums for the exclusive rights to publish stories and photographs.  
+  
+### The shop assistant looked puzzled and Harry repeated the word, slowly stressing each syllable.  
+  
+stress v. to pronounce a word or part of a word so that it sounds louder or more forceful 重读  
+  
+The word 'machine' is stressed on the second syllable.  
+  
+### When the woman shook her head in bewilderment, Harry went on to explain that 'Myrolite' was a hard, amber-like substance which could be used to remove freckles.  
+  
+in bewilderment = in confusion = in puzzlement = in perplexity  
+  
+She looked at him in bewilderment.  
+Matt stared at her in confusion.  
+She frowned in puzzlement.  
+Jane looked about in perplexity.  
+  
+### The explanation evidently conveyed something to the woman who searched shelf after shelf.  
+  
+convey sth. to sb. 向某人传达或表达...  
+Please convey my good wishes to your parents.  
+The poem perfectly conveys to the reader the poet's feelings.  
+  
+But when the train dawdled at station after station, I began to wonder.  
+  
+sth. after sth.  
+  
+day after day  
+week after week  
+year after year  
+time after time  
+  
+He fired shot after shot.  
+Shelley sent him letter after letter to explain the delay.  
+They sent regiment after regiment to attack us.  
+In factory after factory we were shown machines built by the workers themselves.  
+  
+### She produced all sorts of weird concoctions, but none of them met with Harry's requirements.  
+  
+produce v. if you produce an object, you bring it out or present it, so that people can see or consider it 出示，拿出  
+  
+Produce your ticket!  
+They made no effort to hide their amusement whenever I produced a packet of sweets from my pocket.  
+  
+all sorts / kinds / types of sth.  
+sth. of all sorts / kinds / types  
+  
+all sorts of silly jokes  
+all sorts of weird concoctions  
+all sorts of indignities  
+vehicles of all kinds  
+  
+concoction n. sth. that has been made out of several things mixed together  
+a concoction of honey, yogurt, oats, and apples  
+  
+comply with / fulfill / meet (with) / satisfy / suit one's requirements  
+  
+The new computer system will meet (with) all our requirements.  
+  
+### When Harry put on his act of being mildly annoyed, the assistant promised to order some for him.  
+  
+put on an act  
+He wasn't really angry; he just put on an act.  
+  
+put on sth. 假装  
+put on airs  
+put on a smile  
+put on an injured expression  
+  
+### Intoxicated by his success, Harry then asked for perfumed mud.  
+  
+### He expected the assistant to look at him in blank astonishment.  
+  
+blank adj. showing no feeling, understanding or interest 茫然的  
+Steve looked blank and said he had no idea what I was talking about.  
+  
+blank astonishment  
+a look of blank astonishment  
+  
+### However, it was his turn to be surprised, for the woman's eyes immediately lit up and she fetched several bottles which she placed on the counter for Harry to inspect.  
+  
+it is one's turn (to do sth.)  
+It's your turn.  
+It's our turn to drive the kids to school this week.  
+  
+light up: if someone's face or eyes light up, they show pleasure, excitement etc.  
+  
+Suddenly, I saw the Officer's face light up.  
+  
+### For once, Harry had to admit defeat.  
+  
+(just) for once, used to say that sth. unusual happens, especially when you wish it would happen more often  
+  
+Be honest for once.  
+Just for once, let me make my own decision.  
+  
+accept / admit / concede defeat  
+  
+She is very determined, and will never admit defeat.  
+The prime minister conceded defeat and resigned.  
+  
+### He picked up what seemed to be the smallest bottle and discreetly asked the price.  
+  
+discreet adj. careful not to cause embarrassment or attract too much attention, expecially by keeping something secret  
+
+The family made discreet enquiries about his background.  
+  
+### He was glad to get away with a mere 20 pounds and he beat a hasty retreat, clutching the precious bottle under his arm.  
+  
+a mere ... 仅仅  
+  
+beat a (hasty) retreat: leave a place quickly in order to avoid an embarrassing or dangerous situation  
+  
+The cat beat a hasty retreat when it saw the dog was coming.  
+  
+clutch v. to hold something tightly because you do not want to lose it.  
+  
+She was clutching a bottle of champagne.  
+  
+### From then on, Harry decided that this little game he had invented might prove to be expensive.  
+  
+from then on  
+from now on  
+  
+The pie committee decided that the best way to transport the dish would be by canal, so they insured it for the trip.  
+  
+I decided that I must have taken a wrong turning somewhere.  
+  
+Her first impulse was to go round all the rooms looking for the thieves, but then she decided that at her age it might be more prudent to have someone with her, so she went to fetch the porter from his basement.  
+  
+### The curious bottle which now adorns the bookcase in his study was his first and last purchase of rare cosmetics.  
+  
+adorn v. (fml.) to decorate sth. 装饰  
+The walls were adorned with paintings.  
