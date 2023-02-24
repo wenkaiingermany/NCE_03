@@ -125,3 +125,52 @@ bias (against ...)
 bias (in favor of / toward(s)...)  
 partiality (to / toward(s)...)  
 
+### The Scandinavian countries are much admired all over the world for their enlightened social policies.  
+  
+Scandinavian n.&adj. (native) of Scandinavia (i.e. Denmark, Norway, Sweden, Finland, Iceland)  
+  
+much 常与过去分词构成的形容词连用，表示"广为..." "广受..."  
+  
+The money will buy much needed books for the school.  
+  
+Education is a much discussed government service.  
+  
+much-used       much-needed         much-travelled  
+much-loved      much-respected      much-admired  
+much-discussed  much-criticized     much-acclaimed  
+  
+In this much-travelled world, there are still thousands of places which are inaccessible to tourists.  
+  
+all over the world  
+throughout the world  
+around the world  
+in various parts of the world  
+the world over  
+  
+Cooked in wine, snails are a great luxury in various parts of the world.  
+  
+Though my aunt pursued what was, in those days, an enlightened policy, in that she never allowed her domestic staff to work more than eight hours a day, she was extremely difficult to please.  
+  
+### Sweden has evolved an excellent system for protecting the individual citizen from highhanded or incompetent public officers.  
+  
+Sweden  n.  
+Swede  
+Swedish  
+  
+The Swedes were the first to recognize that ...  
+the Swedish Parliament  
+a Swedish village  
+  
+Switzerland  
+Swiss  
+  
+protect ... from  
+The cover protects the machine from dust.  
+  
+high-handed adj. using authority in an unreasonable way, without considering the opinions of other people  
+  
+### The system has worked so well, that it has been adopted in other countries too.  
+  
+work v. to have a particular effect or result  
+The strategy seems to be working.  
+Criticizing your former employers works against you in the interview.  
