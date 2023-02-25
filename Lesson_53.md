@@ -174,3 +174,191 @@ high-handed adj. using authority in an unreasonable way, without considering the
 work v. to have a particular effect or result  
 The strategy seems to be working.  
 Criticizing your former employers works against you in the interview.  
+  
+### The Swedes were the first to recognize that public officials like civil servants, police officers, health inspectors or tax-collectors can make mistake or act over-zealously in the belief that they are serving the public.  
+  
+public official n. 公职人员(以官方的身份行事的人)  
+civil servant n. 政府文职人员  
+health inspector n. someone who works for the government whose job is to visit restaurants and make sure that they are clean and obeying laws about preparing food  
+  
+in the belief that ... = because sb. believe that ...  
+She wrote to him in the belief that he would help her.  
+  
+"in + the + 表示感觉的名词" 在句中作原因状语  
+in the thought that ... = because sb. think that ...  
+in the discovery that ... = because sb. discover that ...  
+in the hope of doing / that ... = because sb. hope to do / that ...  
+
+They leave unwanted objects in drawers, cupboards and attics for years, in the belief that they may one day need just those very things.  
+  
+Young men who have reason to fear that they will be killed in battle may justifiably feel bitter in the thought that they have been cheated of the best things that life has to offer.  
+  
+In the lift her thoughts were on lunch and a good rest; but when she got out at her own floor, both were forgotten in her sudden discovery that her front door was open.  
+  
+The men of our family waded down through our flooded meadows with boathhooks, in the hope of being able to grapple a corner of the raft and pull it out of the current towards our bank.  
+  
+### As long ago as 1809, the Swedish Parliament introduced a scheme to safeguard the interest of the individual.  
+  
+as long ago as ... = as early as ...  
+  
+parliament n. group of people who are elected to make a country's law and discuss important national affairs  
+  
+Parliament n. the main law-making institution in the UK, which consists of the House of Commons and the House of Lords.  
+  
+parliamentary adj. 议会的，国会的  
+a parliamentary committee  
+  
+Congress n. the group of people elected to make laws in the US, consisting of the Senate and the House of Representatives  
+  
+congressional  
+a congressional committee  
+  
+introduce v. 开始推行，开始采用  
+The use of gloves was not introduced until 1860 when the Marquis of Queensberry drew up the first set of rules.  
+  
+scheme n. 1. 计划，方案; 2. 阴谋诡计  
+Most of us fail in our efforts at self-improvement because our schemes are too ambitious and we never have time to carry them out.  
+  
+schemes and intrigues  
+  
+'safeguard v. to protect sth. from harm or damage  
+  
+We hope that world leaders can agree on a plan to safeguard the environment.  
+  
+### A parliamentary committee representing all political parties appoints a person who is suitably qualified to investigate private grievances against the State.  
+  
+appoint v. to choose someone for a position or a job  
+They have appointed a new manager.  
+  
+appoint sb. (as) sth.  
+They appointed him (as) captain of the English team.  
+  
+grievance n. a complaint or a strong feeling that you have been treated unfairly  
+  
+People know who to go to if they have grievance.  
+  
+There must be an opportunity for both sides to air their grievances.  
+  
+### The official title of the person is 'Justiteombudsman', but the Swedes commonly refer to him as the 'J.O.' or 'Ombudsman'.  
+  
+refer to A as B  
+call A B  
+address A as B  
+know A as B  
+  
+Though these large machines still exist, many of their functions have been taken over by small powerful personal computers, commonly known as PCs.  
+  
+People who work in offices are frequently reffered to as 'white collar workers' for the simple reason that they usually wear a collar and tie to go to work.  
+  
+### The Ombudsman is not subject to polictical pressure.  
+  
+*be subject to sth*. likely to be affected by sth., especially sth. bad  
+  
+Flights are subject to delay because of the fog.  
+  
+Smokers are more subject to heart attacks than non-smokers.  
+  
+### He investigate complaints large and small that come to him from all levels of society.  
+  
+两个含义相反的形容词连用，常位于被修饰名词之后  
+  
+A man with a noble heart never bows before difficulties great or small.  
+  
+We should be fair to all people, big and small, young and old.  
+  
+level n. relative position in rank, class or authority  
+  
+These are subjects for discussion at management level.  
+  
+### As complaints must be made in writing, the Ombudsman receives an average of 1,200 letters a year.  
+  
+make / bring / file / lodge / submit a complaint about sth. / against sb.  
+  
+I'd like to make a complaint about the noise.  
+He brought a complaint against his former manager.  
+I determined to lodge a complaint as soon as we arrived.  
+... if any further complaints were lodged against him, he would be presecuted.  
+  
+in writing  
+All bookings must be confirmed in writing.  
+  
+in speech  
+He expressed his opinions both in speech and in writing.  
+  
+speak in English  
+pay in cash  
+a short note scribbled in pencil  
+write a message in code  
+The title was printed in capital letters.  
+  
+an average of ...  
+Parents spend an average of $220 a year on toys for their children.  
+  
+Prices have risen by an average of 4% over the past year.  
+  
+### He has eight lawyer assistants to help him and he examines every single letter in detail.  
+  
+every single...  
+We eat rice every single day!  
+Don't write down every single word I say.  
+  
+### There is nothing secretive about the Ombudsman's work, for his correspondence is open to public inspection.  
+  
+There is nothing secretive about ...  
+There is nothing secretive about it.  
+There is nothing secretive about Christianity.  
+  
+correspondence n.[U] the letters that someone sends and receives, expecially official or business letters  
+  
+She has a lot of correspondence to deal with.  
+  
+mail n. [U] the letters and packages that are delivered to you  
+  
+There isn't much mail today.  
+  
+He agreed that a train did come into the station at the time on the paper and that it did stop, but only to take on mail, not passengers.  
+  
+open adj. public, not limited  
+  
+be open to sb. / sth.  
+The competition is open to anyone over the age of sixteen.  
+I'd like to think I am open to any reasonable suggestion.  
+  
+### If a citizen's complaint is justified, the Ombudsman will act on his behalf.  
+  
+justified adj. having an acceptable explanation or reason  
+justify v. to show or prove that sb./sth. is right or reasonable  
+  
+The edn justifies the means.  
+  
+justification n.[U & C] a good and acceptable reason for doing sth.  
+  
+justification for (doing) sth.  
+There is no justification for holding her in jail.  
+In the young there is a justification for this feeling.  
+  
+on behalf of sb. / on sb's behalf / in behalf of sb. / in sb.'s behalf  
+1. 代表，代替    
+Unfortunately, George cannot be with us today so I am pleased to accept this award on his behalf.  
+2. 为了某人的利益  
+The legal guardian must act on behalf of the child.  
+  
+### The action he takes veries according to the nature of the complaint.  
+  
+Immediate action must be taken to stop the fire spreading.  
+  
+It was impossible for the Ombudsman to take action, ...  
+  
+vary according to ...  
+Prices vary according to the type of room you require.  
+  
+Every solid object will reflect a sound, varying according to the size and nature of the object.  
+  
+### He may gently reprimand an offical or even suggest to parliament that a law be altered.  
+  
+'reprimand / rebuke sb. for sth.  
+I was reprimanded / rebuked by my manager for being late.  
+  
+Recognizing who the customer was, the manger was most apologetic and reprimanded the assistant severely.  
+  
+### The following case is a typical example of the Ombudsman's work.  
