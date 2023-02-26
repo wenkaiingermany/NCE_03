@@ -362,3 +362,85 @@ I was reprimanded / rebuked by my manager for being late.
 Recognizing who the customer was, the manger was most apologetic and reprimanded the assistant severely.  
   
 ### The following case is a typical example of the Ombudsman's work.  
+  
+### A foreigner living in a Swedish village wrote to the Ombudsman complaining that he had been ill-treated by the police, simply because he was a foreigner.  
+  
+write to sb. = write a letter to sb.  
+  
+ill-treat v. to treat sb. in a cruel or unkind way, abuse  
+  
+ill-treat one's dog  
+ill-treated animals  
+  
+ill adv. badly  
+ill-bred  breed  
+ill-advised  
+ill-mannered  
+  
+well-bred  
+well-advised  
+well-informed  
+well-intentioned  
+  
+simply because = for the simple reason that ...  
+People who work in offices are frequently referred to as 'white collar workers' for the simple reason that they usually wear a collar and tie to go to work.  
+  
+I was not surprised to find that the machine still refused to work after I had reassembled it, for the simple reason that I was left with several curiously shaped bits of metal which did not seem to fit anywhere.  
+  
+simply because ...  
+partly because ...  
+mainly because ...  
+  
+Many exam candidates lose marks simply because they do not read the questions properly.  
+  
+I decided to go with them, mainly because I had nothing better to do.  
+  
+Hubert never experienced any fear, and this was partly because he was not particularly intelligent.  
+ 
+### The Ombudsman immediately wrote to the Chief of Police in the district asking him to send a 'record of the case.  
+  
+Chief of Police n. the most senior police officer in a city who is in charge of all the police there.  
+  
+### There was nothing in the record to show that the foreigner's complaint was justified and the Chief of Police strongly denied the accusation.  
+  
+deny an accusation / a charge  
+  
+### It was impossible for the Ombudsman to take action, but when he received a similar complaint from another foreigner in the same village, he immediately sent one of his lawyers to investigate the matter.  
+  
+### The lawyer ascertained that a policeman had indeed dealt roughly with foreigner on several occasions.  
+  
+deal well / badly ect. by / with sb. (fml.) treat sb. well, badly etc. 对某人好，坏
+  
+He has always dealt well by me.  
+You've been badly dealt with.  
+The police dealt roughly with the rioters.  
+He deals fairly with all people.  
+I consider he had been dealt with leniently.  
+  
+### The fact that the policeman was prejudiced against foreigners could not be recorded in the official files.  
+  
+### It was only possible for the Ombudsman to find this out by sending one of his representatives to check the facts.  
+  
+### The policeman in question was severely reprimanded and was informed that if any further complaints were lodged against hism, he would be presecuted.  
+  
+in question: being discussed  
+The woman in question is sitting over there.  
+The job in question is available for three months only.  
+  
+lodge a complaint against sb.  
+  
+presecute vt. 检举，起诉，对...提起公诉  
+  
+Trespassers will be presecuted.  
+Shoplifters will be presecuted.  
+  
+### The Ombudsman's prompt action at once put an end to an unpleasant practice which might have gone unnoticed.  
+  
+put / bring an end to sth. stop sth. from happening any more; abolish sth.  
+  
+The government is determined to put an end to terrorism.  
+It's hoped the talks may bring an end to the violence.  
+  
+go / pass unnoticed  
+If they had only had one more child, the fact would have passed unnoticed.  
+  
