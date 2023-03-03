@@ -188,4 +188,110 @@ dispel v. 驱散，打消
 dispel doubts / fears / worries / rumors / hesitations ...  
 This brief experiment would dispel any further doubts you might have.  
   
+### Knowing that the industrious ant lives in a highly organized society does nothing to prevent us from being filled with revulsion when we find hordes of them crawling over a carefully prepared picnic lunch.  
+  
+industrious: diligent  
+Aunt Harriet could not find words to praise Bessie's industriousness and efficiency.  
+  
+industrial adj. 工业的，产业的  
+industrial revolution  
+industrial workers  
+  
+do nothing to do sth. / not do anything to do sth. 在某方面根本没用  
+  
+Precautions of this sort are necessary, ...  
+  
+The precautions did nothing / did not do anything to prevent the disease from spreading.  
+  
+do little to do sth.  
+do much / a lot / a great deal to do sth.  
+Though he was technically a prizefighter, Mendoza did much to change crude prizefighting into a sport, for he brought science to the game.  
+  
+be filled with anger / fear / dread / horror / joy / happiness / doubt / alarm / revulsion / admiration / remose ...  
+  
+All at once, I noticed that my wife seemed to be filled with alarm.  
+  
+### No matter how much we like honey, or how much we have read about the uncanny sense of direction which bees possess, we have a horror of being stung.  
+  
+sense of direction / humor / danger / justice / pride / accomplishment / honor / responsibility / superiority / inferiority ...  
+  
+The sense of humor is mysteriously bound up with national characteristics.  
+  
+He simply had no sense of danger at all.  
+  
+have a horror of ... = be afraid / frightened / scared of ...  
+She has a horror of cockroaches.  
+She is afraid / frightened / scared of cockroaches.  
+  
+### Most of our fears are unreasonable, but they are impossible to erase.  
+  
+My fear of driving is unreasonable, but it is impossible to erase.  
+  
+### At the same time, however, insects are stangely fascinating.  
+  
+fascinating adj. 迷人的  
+fascinate vt.  
+fascination n.  
+Cats never fail to fascinate human beings.  
+Antique shops exert a peculiar fascination on a great many people.  
+  
+### We enjoy reading about them, especially when we find that, like the praying mantis, they lead perfectly horrible lives.  
+  
+perfectly adv. completely -- used to emphasize what you are saying  
+It's perfectly normal to feel like this.  
+To be perfectly honest, I didn't want to go anyway.  
+  
+### We enjoy staring at them, entranced as they go about their business, unaware (we hope) of our presence.  
+  
+entrance vt. 令人着迷，陶醉  
+I'm completely entranced by / with the music.  
+The children sat silent on the carpet, entranced by the puppet show.  
+  
+go about one's business 做自己的事  
+The villagers were going about their business as usual.  
+  
+go about sth. 着手做某事  
+I want to learn German but I don't know the best way to go about it.  
+  
+be (un)aware of ...  
+He used to sleep during the day and work at night, quite unaware of the fact that he had become the ghost of Endley.  
+  
+presence n. 出席，在场  
+in the presence of sb.  
+in sb.'s presence  
+Harry is very thrifty, but in the presence of his friends he never shows this side of his life.  
+  
+Please do not smoke in my presence.  
+  
+absence n. 不在场，缺席  
+in the absence of sb.  
+in sb.'s absence  
+In my absence he will be in charge.  
+  
+In the absence of their teacher, the students were all going about their business.  
+  
+### Who has not stood in awe at the sight of a spider pouncing on a fly, or a column of ants triumphantly bearing home an enormous dead beetle?  
+  
+stand in awe (of ...) 对...充满敬畏  
+pounce on ... 猛扑向...  
+He had spotted a tiny bottle at the bottom of my case and he pounced on it with delight.  
+  
+column n. a long moving line of people or things  
+  
+a column of soldiers / refugees / tanks  
+  
+triumph n./v. 胜利，成功  
+There was a note of triumph in my voice when I tole him that it was there in black and white.  
+  
+Arch of Triumph  
+  
+rhetorical question  
+We often speak of tramps with contempt and put them in the same class as beggars, but how many of us can honestly say that we have not felt a little envious of their simple way of life and their freedom form care?  
+  
+O, wind, if winter comes, can spring be far behind?  P.B. Shelley  
+  
+Who among us has not dreamed of that?  
+  
+What is the use of our studying grammar if we can't put the grammatical rules into practice?  
+  
 
