@@ -294,4 +294,152 @@ Who among us has not dreamed of that?
   
 What is the use of our studying grammar if we can't put the grammatical rules into practice?  
   
-
+### Last summer I spent in the garden watching thousands of ants crawling up the trunk of my prize peach tree.  
+  
+prize: valued; treasured; cherished  
+  
+One of Mary's prize possessions was a little white lamb which her husband had given her.  
+  
+The idea never appealed to me very much, but one day, after heavy shower, I happened to be walking in my garden when I noticed a huge number of snails taking a stroll on some of my prize plants.  
+  
+### The tree has grown against a warm wall on a sheltered side of the house.  
+  
+sheltered adj. 可避风雨的  
+We found a sheltered spot to have a picnic.  
+  
+### I am especially proud of it, not only because it has survived several severe winters, but because it occasionally preduces luscious peaches.  
+  
+survive vt.  
+A cat's ability to survive falls is based on fact.  
+  
+severe adj. 严重的，严酷的，严厉的  
+a severe injury  
+a severe winter  
+  
+Recognizing who the customer was, the manager was most apologetic and reprimanded the assistant severely.  
+  
+produce v.  
+1. make, create  
+When you come to think about it, there are only four ways you can deal with rubbish: dump it, burn it, turn it into something you can use again, attempt to produce less of it.  
+2. to grow sth. or make it naturally  
+The tree produces fruit.  
+A cow produces milk.  
+A hen produces eggs.  
+3. if you produce an object, you bring it out or present it, so that people can see or consider it  
+Produce your ticket!  
+They made no effort to hide their amusement whenever I produced a packet of sweets from my pocket.  
+She produced all sorts of weird concoctions, but none of them met with Harry's requirements.  
+  
+### During the summer, I noticed that the leaves of the tree were beginning to wither.  
+  
+### Clusters of tiny insects called aphids were to be found on the underside of the leaves.  
+  
+cluster n. a group of things of the same kind that are very close together  
+  
+a cluster of red berries  
+  
+be to be found / heard / seen  
+Such books are to be found in the library.  
+Not a sound was to be heard.  
+Not a soul was to be seen.  
+  
+be to do (fml.)  
+1. 打算  
+2. 命令  
+3. 能够  
+4. 应该  
+  
+### They were visited by a large colony of ants which obtained a sort of honey from them.  
+  
+colony n. a group of animals or plants of the same type that are living or growing together  
+  
+a colony of ants  
+a seal colony  
+  
+We can read of things that happened 5,000 years ago in the Near East, where people first learned to write.  
+  
+a sort of = a kind of ...  
+We sometimes imagine a desert island to be a sort of paradise where the sun always shines.  
+I spite of this, the Italians regarded him  as a sort of hero.  
+  
+Libraries made education possible, and education in its turn added to libraries: the growth of knowledge followed a kind of compound interest law, which was greatly enhanced by the invention of printing.  
+  
+### I immediately embarked on an experiment which, even though it failed to get rid of the ants, kept me fascinated for twenty-four hours.  
+  
+embark on / upon sth.  
+Armed with the right tools and materials, newlyweds gaily embark on the task of decorating their own homes.  
+  
+get rid of ... 赶走...,打发走...  
+It took me over half an hour to get rid of him.  
+  
+### I bound the base of the tree with sticky tape, making it impossible for the ants to reach the aphids.  
+  
+At the base of the gold cap, the words 'made in the U.S.A.' had been nearly inscribled.  
+  
+### The tape was so sticky that they did not dare to cross it.  
+  
+### For a long time, I watched them scurrying around the base of the tree in bewilderment.  
+  
+scurry v. run with short quick steps  
+The mouse scurried across the floor.  
+  
+bewilder v. 令人迷惑，令人晕头转向  
+bewildering adj.  
+Films, videos, CDs and CD/ROMS are just some of the bewildering amount of information thez will have.  
+  
+in bewilderment / confusion  
+in surprise / horror / despair / a panic  
+  
+### I even went out at midnight with a torch and noted with satisfaction (and surprise) that the ants were still swarming around the sticky tape without being able to anything about it.  
+  
+with satisfaction = satisfiedly  
+After consulting my railway timetable, I noted with satisfaction that there was an express train to Westhaven.  
+  
+with ease = easily  
+His few material possessions make it possible for him to move from place to place with ease.  
+  
+with delight = delightedly  
+He had spotted a tiny bottle at the bottom of my case and he pounced on it with delight.  
+  
+with a smile = smilingly  
+'But it isn't perfume,' I said. 'It's hair gel.'  
+Then I added with a smile, 'It's a strange mixture I make myself.'  
+  
+with pride = proudly  
+with attention = attentively  
+with confidence = confidently  
+with reluctance = reluctantly  
+  
+swarm v. When insects swarm, they come together in a large group  
+  
+do something about ...: to do something in order to deal with a problem or difficult situation  
+  
+When my wife nagged me to do something about it, I told her that either I would have to buy a new mower or let the grass grow.  
+  
+there is nothing ... can do about ...  
+'That's the trouble, vicar,' answered Bill. 'It's working all right, but I'm afraid that at one o'clock it will strike thirteen times and there's nothing I can do about it.'  
+  
+### I got up early next morning hoping to find that the ants had given up in despair.  
+  
+Instead of ..., however, ...  
+  
+### Instead, I swa that they had discovered a new route.  
+  
+Instead of becoming a doctor, however, he became a successful writer of detective stories.  
+  
+I gave him fifty pence yesterday and advised him to save it. Instead he bought himself fifty pence worth of trouble.  
+  
+### They were climbing up the wall of the house and then on to the leaves of the tree.  
+  
+on to ... = onto ... 到...上面去  
+  
+### I realized sadly that I had been completely defeated by their ingenuity.  
+  
+### The ants had been quick to find an answer to my thoroughly unscientific methods!  
+  
+be quick to do: to react quickly to what someone says or does  
+He was quick to notice the mistake.  
+He offered to train Mendoza and his young pupil was quick to learn.  
+  
+an answer to sth: a solution to sth.  
+There is no easy answer to the problem.  
