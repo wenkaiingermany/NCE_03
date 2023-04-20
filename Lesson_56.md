@@ -102,3 +102,63 @@ The work should be carried out without undue delay.
   
 due adj. proper, suitable 适当的  
 After due consideration, we have decided to appoint Mr. Davis to the job.  
+  
+man's best friend, the dog  
+God Almighty, Jesus Christ  
+  
+### The river which forms the eastern boundary of our farm has always played an important part in our lives.  
+  
+play a ... role / part in ...  
+The city of Xi'an played a crucial role in the history of China.  
+
+The government should play a more prominent part in promoting human rights.  
+
+Not all sounds made by animals serve as language, and we have only to turn to that extraordinary discovery of echo-location in bats to see a case in which the voice plays a strictly utilirarian role.  
+  
+The fact of first-rate importance is the predominant role that custom plays in experience and in belief, and the very great varieties it may manifest.  
+  
+John Dewey has said in all seriousness that the part played by custom in shaping the behavior of the individual, as against any way in which he can affect traditional custom, is as the proportion of the total vocabulary of his mother tongue against those words of his own baby talk that are taken up into the vernacular of his family.  
+  
+### Without it we could not make a living.  
+If we didn't have it we could not make a living.  
+  
+There would be no living things without air.  
+There would be no living things if there were no air.  
+  
+In his position, I would commit suicide.  
+If I were in his position, I would commit suicide.  
+  
+make / earn a living  
+  
+### There is only enough spring water to supply the needs of the house, so we have to pump from the river for farm use.  
+  
+Be quiet or you'll wake the house.  
+the village  
+the town  
+the city  
+the country  
+the world  
+  
+entertain the world  
+The whole country was / were shocked at the news.  
+  
+..., we have to pump from the river for irrigation.  
+..., ... irrigate the fields.  
+  
+### We tell the river all our secrets.  
+  
+### We know instinctively, just as beekeepers with their bees, that misfortune might overtake us if the important events of our lives were not related to it.  
+  
+instinctively = by instinct  
+particularly = in particular  
+accidentally = by accident  
+carefully = with care  
+delightedly = with delight  
+angrily = with anger  
+  
+relate sth. to sb.  
+She related the events of the previous week to the police.  
+  
+relate A to / with B  
+report / recount / relate sth. to sb.  
+tell sb. (about) sth.  
