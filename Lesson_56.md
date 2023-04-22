@@ -162,3 +162,77 @@ She related the events of the previous week to the police.
 relate A to / with B  
 report / recount / relate sth. to sb.  
 tell sb. (about) sth.  
+  
+### We have special river birthday parties in the summer. Sometimes we go upstream to a favourite backwater, sometimes we have our party at the boathouse, which a predecessor of ours at the farm built in the meadow hard by the deepest pool for swimming and diving.  
+  
+go / row / sail upstream  
+Learning is like rowing upstream: not to advance is to drop back.  
+  
+go / row / sail downstream  
+  
+a predecessor of ours  
+one of our predecessors  
+  
+hard by ... (fml.) very near to ...  
+The cafeteria stands hard by our dormitory.  
+  
+### In a heat wave we choose a midnight birthday party and that is the most exciting of all.  
+  
+heat wave  酷暑  
+cold spell 严寒  
+  
+It's a boiling / scorching / sizzling hot day.  
+  
+It's a bitterly / biting / freezing cold day.  
+  
+### We welcome the seasons by the riverside, crowing the youngest girl with flowers in the spring, holding a summer festival on Midsummer Eve, giving thanks for the harvest in the autumn, and throwing a holly wreath into the current in the winter.  
+  
+We celebrate the arrival of the seasons.  
+  
+Mid-Autumn Festival  
+Dragon Boat Festival  
+  
+Thanksgiving Day: the fourth Thursday in November  
+  
+the Puritans  
+the Mayflower  
+Columbus  
+  
+American Indians / Native Americans  
+  
+the Pilgrims  
+the Pilgrim Fathers  
+  
+roast turkey  
+apple pie  
+  
+I give thanks to my mother for supporting me all the time.  
+I give thanks to my math teacher for not flunking me.  
+  
+### After a long period of rain the river may overflow its banks. This is a rare occurrence as our climate seldom goes to extremes.  
+  
+a rare / common / regular / everyday occurrence  
+Laughter was a rare occurrence in his classroom.  
+Unfortunately, computer errors are a common occurrence.  
+Street-fights are an everyday occurrence in this area of the city.  
+  
+go to extremes  
+Editors of newspapers and magazines often go to extremes with unimportant facts and statistics.  
+  
+Our climate is usually moderate.  
+  
+### We are lucky in that only the lower fields, which make up a very small proportion of our farm, are affected by flooding, but other farms are less favourably sites, and flooding can sometimes spell disaster for their owners.  
+  
+a high / large proportion / percentage of ...  
+a small / tiny proportion / percentage of ...  
+  
+a majority of ...  
+a vast / great / overwhelming majority of ...  
+  
+a monority of ...  
+a small / tiny minority of ...  
+  
+spell v. to cause sth. bad to happen in the future.  
+spell disaster / trouble / danger for ...  
+The lack of rain could spell disaster for farmers.  
+This cold weather could spell trouble for gardeners.  
