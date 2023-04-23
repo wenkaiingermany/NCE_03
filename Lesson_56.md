@@ -236,3 +236,119 @@ spell v. to cause sth. bad to happen in the future.
 spell disaster / trouble / danger for ...  
 The lack of rain could spell disaster for farmers.  
 This cold weather could spell trouble for gardeners.  
+  
+### One bad winter we watched the river creep up the lower meadows.  
+  
+creep v. 蹑手蹑脚地走  
+Nevertheless, I managed to creep down into the living-room for two days before anyone found me out.  
+  
+Curiositz swallowed him.  
+A gentle breeze caressed mz cheeks and soothed mz heart.  
+  
+### All the cattle had been moved into stalls and we stood to lose little.  
+  
+stall n. an enclosed area in a building for an animal such as a horse or cow  
+  
+stand to do sth: to be likely to do or have something 可能  
+stand to gain / lose / win ...  
+  
+Many small companies stand to lose financially if the new law is introduced.  
+  
+### We were, however, worried about our nearest neighbours, whose farm was low lying and who were newcomers to the district.  
+  
+The plane flew low.  
+lowly adj. low in rank, importance, or social class 卑微的，低等的  
+a lowly servant  
+If we were able to discover lowly forms of life like bacteria on another planet, it would completely change our view or ourselves.  
+  
+### As the floods had put the telephone out of order, we could not find out how they were managing (to deal with it).  
+  
+put ... out of order  
+  
+put ... in order = put ... right  
+  
+When lights guse, furniture gets rickety, pipes get clogged, or vacuum cleaners fail to operate, some women assume that their husbands will somehow put things right.  
+  
+be out of order  
+The bell had been out of order for many years.  
+  
+put ... out of business  
+put ... out of work  
+  
+### From an attic window we could get a sweeping view of the river where their land joined ours, and at the most critical juncture we took turns in watching that point.  
+  
+... get a sweeping view  
+... get a bird's eye view  
+  
+..., when the flood was at its height ...  
+..., at the height of the flood ...  
+  
+the height of ...  
+August is the height of summer.  
+The storm is at its height.  
+  
+take turns (in) doing sth.  
+take turns to do sth.  
+There is only one computer, so we have to take turns (in) using / to use it.  
+  
+### The first sign of disaster was a dead sheep floating down.  
+  
+sign  
+indication  
+omen  
+a good / bad omen  
+  
+### Next came a horse, swimming bravely, but we were afraid that the strength of the current would prevent its landing anywhere before it became exhausted.  
+  
+全部倒装  
+把全部谓语动词置于主句之前  
+1. 表示位置或次序的状语置于句首，主要满足两个条件，要用全部倒装: 主语不是代词; 谓语动词不是及物动词  
+2. 表语置于句首  
+  
+Now comes your turn.  
+On the hill stands a temple.  
+Happy is he who has a sound mind in a sound body.  
+Gone are the days when my heart was yound and gay.  
+  
+... prevent it form landing anywhere ...  
+  
+### Suddenly a raft appeared, looking rather like Noah's ark, carrying the whole family, a few hens, the dogs, a cat, and a bird in a cage.  
+  
+Noah's ark  
+the Genesis  
+the New Testament (Christians)  
+the Old Testament (Jews)  
+deluge  
+  
+### We realized that they must have become unduly frightened by the rising flood, for their house, which had sound foundations, would have stood stoutly even if it had been almost submerged.  
+  
+sound adj. in good condition and not damaged in any way  
+The floor was completely sound.  
+Is the building structurally sound?  
+  
+stout = sturdy adj. strong and thick 粗壮的，结实的  
+stout boots for climbing  
+a stout walking-stick  
+  
+### The men of our family waded down through our flooded meadows with boathooks, in the hope of being (=because they hope to be) able to grapple a corner of the raft and pull it out of the current towards our bank.  
+  
+wade  
+trek  
+ 
+in the hope of / that ...  
+... in the hope that they would be able to ...  
+Police are carrying out a house-to-house search in the hope of finding the missing girl.  
+  
+The Swedes were the first to recognize that public officials like civil servants, police officers, health inspectors or tax-collectors can make mistakes or act over-zealously in the belief (=because they believe) that they are serving the public.  
+  
+In the life her thoughts were on lunch and a good rest; but when she got out at her own floor, both were forgotten in her sudden discovery (=because she suddenly discovered) that her front door was open.  
+  
+They leave unwanted objects in drawers, cupboards and attics for years, in the belief that (=because they believe that) they may one day need just thost very things.  
+  
+Young men who have reason to fear that they will be killed in battle may justifiably feel bitter in the thought (=because they think) that they have cheated of the best things that life has to offer.  
+  
+grapple v. to take a firm hold of sb./sth. and struggle with them  
+  
+They managed to grapple him to the ground.  
+  
+### We still think it a miracle that they were able to do so.  
