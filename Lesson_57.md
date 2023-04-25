@@ -90,3 +90,131 @@ History relates that they stumbled on a mignificent waterfall.
 stumble into ... to become involved in sth. by chance 偶然卷入，参与或陷入...  
 I stumbled into acting when I left college.  
 I felt as if I had stumbled into a nightmare country, as you sometimes do in dreams.  
+  
+### I stopped to let the car cool off and to study the map.  
+  
+cool off v. to return to a normal temperature after being hot  
+  
+Cool off with an iced drink.  
+By late autumn Mediterranean islands have cooled off, and can have rainy days.  
+  
+study v. examine (sth) very carefully  
+  
+study the map / menu ...  
+Scientists are studying the photographs of Mars for signs of life.  
+  
+### I had expected to be near my objective by now, but everything still seemed alien to me.  
+  
+expect (sb.) to do: 以为; 料想  
+He didn't expect to see me.  
+We expected him to arrive yesterday.  
+  
+objective n. 目标，目的 = goal  
+Everest is the climber's next objective.  
+Let justice be our objective.  
+  
+by now  
+After crossing the equator, the captain called in at a port to have a new rudder fitted, but by now the Thermopylae was over five hundred miles ahead.  
+  
+be alien to ...  
+The idea is alien to our religion.  
+Luxury is alien to her nature.  
+  
+### I was only five when my father taken me abroad, and that was eighteen years ago.  
+  
+### When my mother had died after a tragic accident, he did not quickly recover from the shock and loneliness.  
+  
+recover from ...  
+You will not have to spend the next few days recovering from a long and arduous journey.  
+  
+recover sth.  
+1. 恢复 ... = restore sth. / regain sth.  
+  
+recover/restore/regain + one's health/sight/consciousness/balance/composure  
+  
+2. 重新获得，找回，赚回，补偿  
+But the claim made by a local authority to recover the cost of salvaging a sunken pie dish must surely be unique.  
+  
+### Everything around him was full of her presence, continually reopening the wound.  
+  
+presence  
+n. 1. 出席，在场，存在  
+We enjoy staring at them entranced as they go about their business, unaware (we hope) our presence.  
+At present, there is no telescope in existence that is capable of detecting the presence of life.  
+  
+in the presence of sb.  
+in sb.'s presence  
+Harry is very thrifty, but in the presence of his friends he never shows this side of his life.  
+I asked you not to smoke in my presence.  
+  
+n. a person or spirit that you cannot see but that you feel is with you in a place  
+His daughter's presence seemed to fill her empty bedroom.  
+  
+continually vs. continously  
+  
+Everything around me is full of his / her presence, continually reopening the wound.  
+  
+### So he decided to emigrate. In the new country he became absorbed in making a new life for the two of us, so that he gradually ceased to grieve.  
+  
+make a new life for sb.  
+I was determined to make a new life for myself in Australia.  
+After the divorce she moved to Buckingham to make a new life for herself.  
+  
+turn over a new leaf 弃恶从善，洗心革面  
+The thief was determined to turn over a new leaf once he was released from prison.  
+  
+cease to do 不再...  
+There are rare instances when justice almost ceases to be an abstract concept.  
+  
+grieve v. to feel extremely sad, especially because someone you love had died 悲伤  
+grieve (over/for)...  
+They are still grieving over / for their dead child.  
+She grieved the death of her husband.  
+  
+grievance n. 委屈，不平，不满，牢骚  
+A parliamentary committee representing all political parties appoints a person who is suitably qualified to investigate private grievances against the State.  
+  
+### He did not marry again and I was brought up without a woman's care; but I lacked for nothing, for he was both father and mother to me.  
+  
+bring up sb.  
+  
+lack sth.  
+lack for sth. (fml.) = need sth.  
+lack for nothing  
+  
+语义相对的名词并列，长省略冠词  
+Father and son went to New York by a morning train.  
+We are brother and sister.  
+Husband and wife are talking about the boy's future.  
+Please pass me pencil and paper.  
+  
+### He always meant to go back one day, but not to stay.  
+  
+mean to do sth. 打算做某事  
+Whoops! I didn|t mean to step on your toe.  
+I mean to leave that meeting with a new contract.  
+  
+### His roots and mine had become too firmly embedded in the new land.  
+  
+### But he wanted to see the old folk again and to visit my mother's grave.  
+  
+folk (BrE) / folks(AmE) n. people  
+ordinary working-class folk  
+I'd like a job working with old folk or kids.  
+Yound folk these days don't know the meaning of work.  
+  
+### He became mortally ill a few months before we had planned to go and, when he knew that he was dying, he made me promise to go on my own.  
+  
+mortally = fatally adv. 致命地  
+mortally / fatally ill / injured / wounded  
+  
+a mortal / fatal illness / injury / wound  
+  
+Though Verrazano is by no means considered to be a great explorer, his name will probably remain immortal, for on November 21st, 1964, the greatest bridge in the world was named after him.  
+  
+all alone / on one's own / by oneself  
+She was sitting alone on a park bence.  
+I don't like walking home on my own at night.  
+Do you share the apartment of do you live by yourself?   
+  
+Wendy was frightened, all alone in that big old house.  
