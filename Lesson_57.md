@@ -218,3 +218,61 @@ I don't like walking home on my own at night.
 Do you share the apartment of do you live by yourself?   
   
 Wendy was frightened, all alone in that big old house.  
+  
+### I hired a car the day after landing and bought a comprehensive book of maps, which I found most helpful on the cross-country journey, but which I did not think I should need on the last stage.  
+同一层次上的双重定语从句  
+两个定语从句修饰同一个名词或短语，中间用并列连词(and, or 或 but)连接，此时关系代词往往不可省去。  
+  
+This book is intended for foreign students who have already mastered the elements of English, and who now want to use their knowledge of language to read books on their own subjects.  
+  
+The past progressive is chiefly used for past actions which continued for some time but whose exact limits are not known.  
+  
+不在同一层次上的双重定语从句  
+第一个定语从句修饰前面的名词或短语，第二个定语从句修饰 "名词或短语+第一个定语从句"，两个定语从句之间没有并列连词链接。第一个定语从句的关系词可省略  
+  
+The only person I know who has a skeleton in the cupboard is George Carlton, and he is very pound of the fact.  
+  
+嵌入式定语从句: 既是先行词的后置定语，又是另一个分句结构的宾语  
+In this part of the cave, they could hear an insistent booming sound which they found was caused by a small waterspout shooting down into a pool from the roof of the cave.  
+  
+Turning back down the main street, we quickened our pace and made our way rapidly towards the stream where we hoped the boatman was waiting.  
+  
+### It was not that I actually remembered anything at all. But my father had described over and over again what we should see at every milestone, after leaving the nearest town, so that I was positive I should recognize it as familiar territory.  
+  
+It is / was not that ..., but (that) ...  
+  
+It was not that Bruce always underestimated difficulties. He simply had no sense of danger at all.  
+  
+not that ..., but that ...  
+  
+Not that I love Caesar less, but that I love Rome more.  
+  
+over and over (again)  
+  
+I've told you over and over (again) not to do that.  
+  
+again and again  
+time after time  
+time and (time) again  
+many times  
+repeatedly  
+  
+be positive (that)  
+Are you absolutely positive you locked the door?  
+  
+I was sure / certain / confident / convinced (that) ...  
+  
+I had no doubt (that) ...  
+I bet (that) ...  
+  
+familiar / unfamiliar territory  
+Social work is familiar territory to her.  
+All this is familiar territory to readers of her recent novels.  
+  
+### Well, I had been wrong, for I was now lost.  
+  
+well interj. used for expressing a feeling such as doubt, surprise, or anger  
+  
+Well, they have a lot of nerve!  
+Well, she could at least have phoned to say she wasn't coming!  
+  
