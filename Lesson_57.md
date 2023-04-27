@@ -276,3 +276,103 @@ well interj. used for expressing a feeling such as doubt, surprise, or anger
 Well, they have a lot of nerve!  
 Well, she could at least have phoned to say she wasn't coming!  
   
+### I looked at the map and then at the milometer.  
+thermometer  
+barometer  
+odometer / milometer  
+speedometer  
+  
+### I had come ten miles since leaving the town, and at this point, according to my father, I should be looking at farms and cottages in a valley, with the spire of the church of our village showing in the far distance.  
+  
+come = travel  
+Some of the birds have come thousands of miles to winter here.  
+  
+(wiht +) n. + 非谓语  
+The silence was suddenly broken when a large car with its headlights (being) on and its horn blaring, roared down the arcade.  
+  
+It is possible that upon such an occasion a battle ensued, with the sharks being driven away or killed.  
+  
+### I could see no valley, no farms, no cottages and no church spire - only a lake.  
+  
+### I decided that I must have taken a wrong turning somewhere.  
+decide 不一定译为"决定"，而常常译为"(在考虑之后)确定，断定，认为"，尤其是其后加that引导的宾语从句  
+  
+The pie committee decided that the best way to transport the dish would be by canal, so they insured it for the trip.  
+  
+From then on, Harry decided that this little game he had invented might prove to be expensive.  
+  
+turning (BeE) / turn (AmE) n. 道路转弯处  
+  
+He must have taken a wrong turning in the dark.  
+Take the first turning on the left.  
+  
+### So I drove back to the town and began to retrace the route, taking frequent glances at the map.  
+  
+retrace v. repeat (a journey, route, etc.) exactly  
+We shall be retracing the rout taken by Marco Polo.  
+  
+They are hoping to retrace the epic voyage of Christopher Columbus.  
+  
+take / shoot / throw / cast a glance at ...  
+The couple at the next table cast quick glances at us.  
+The other people shot sidelong glances at me.  
+  
+### I landed up at the same corner.  
+land up = end up = finish up: to finally be in a particular place or situation  
+He'll land / end / finish up in hospital if he carries on drinking like that.  
+  
+land up / end up / finish up doing  
+Instead of becoming a doctor, however, he landed up / ended up / finished up becoming a successful writer of detective stories.  
+  
+### The curious thing was that the lake was not marked on the map. I felt as if I had stumbled into a nightmare country, as you sometimes do in dreams.  
+  
+as if / as though从句中表达与事实相反或可能性很小时，可以用虚拟语气。与现在事实相反用一般过去时（be动词一般用were），与过去事实相反用过去完成时，与未来趋势相反用 would/should/could/might + 动词原形  
+  
+It is as if a single unimportant event set up a chain of reactions.  
+  
+As if this were not enough to reduce you to tears, your husband arrives, unexpectedly bringing three guests to dinner.  
+  
+It looks as if it might rain.  
+  
+as if / as though 从句虚拟语气为进行时的时候，一般用were doing的形式  
+'Oh, that,' he said with a smile as if he were talking about an old friend.  
+  
+Suddenly, the knocking turned to a forceful banging, as if someone were hitting the door with a metal rod.  
+  
+It looks as if he were talking to someone invisible.  
+  
+stumble into ... to become involved in sth. by chance  
+I stumbled into acting when I left college.  
+  
+### And, as in a nightmare, there was nobody in sight to help me.  
+  
+连词as引导的方式状语从句中常省略主句中出现过的成分而之残存 "as+状语" 结构  
+  
+And, as there is nobody in sight to help me in a nightmare, there was nobody in sight to help me.  
+  
+In New York, as in some other cities, environmental pollution is becoming more and more serious.  
+  
+### Fortunately for me, as I was wondering what to do next, there appeared on the horizon a man on horseback, riding in my direction.  
+  
+on horseback  
+a soldier on horseback  
+They travelled over the mountains on horseback.  
+  
+in sb's direction  
+Tony glanced in her direction and their eyes met.  
+  
+### I waited till he came near, then I asked him the way to our old village.  
+  
+ask / tell / show sb. to way to ...  
+He asked me the way to London.  
+  
+Could you tell me the way to the station?  
+Could you please show me the way to the temple?  
+  
+### He said that there was now no village.  
+  
+### I thought he must have misunderstood me, so I repeated its name. This time he pointed to the lake.  
+  
+### The village no longer existed because it had been submerged, and all the valley too.  
+  
+### The lake was not a natural one, but a man-made reservior.  
