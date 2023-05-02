@@ -198,3 +198,73 @@ in / during one's absence
 in / during the absence of sb.  
 in one's presence  
 in the presence of sb.  
+  
+### Her first impulse was to go round all the rooms looking for the thieves, but then she decided that at her age it might be more prudent to have someone with her, so she went to fetch the porter from his basement.  
+  
+one's aim / purpose is to ...  
+one's dream is to ...  
+one's hope / wish is to ...  
+one's advice / suggestion is to ...  
+one's first impulse / reaction is to ...  
+  
+prudent adj. sensible and careful, esp. by trying to avoid unnecessary risks  
+  
+prudent house buyers  
+  
+it is prudent (for sb.) to do sth.  
+It would be prudent to save some of the money.  
+It might be prudent to get some expert advice first.  
+  
+rash adj.  
+Don't make rash promises.  
+Despite the new tunnel, there are still a few people who rashly attempt to cross the Pass on foot.  
+  
+have (got) sb. with you: if you have someone with you, they are present with you  
+Luckily I had a friend with me who spoke German.  
+  
+fecth sb. from sth. 从...把某人接来，叫来或者找来  
+Would you mind going to fetch the kids from school?  
+I have to fetch my mother from the railway station.  
+  
+porter  
+n. 1.(BrE) = doorman (AmE) someone whose job is to take care of a building and be present at its entrance in order to help visitors  
+  
+n. 2. a person whose job is to carry things, especially traveler's bags at railway stations, airport, etc.  
+She gave her luggage to a porter and showed him her ticket.  
+  
+### By this time her legs were beginning to tremble, so she sat down and accepted a cup of very strong tea, while he telephoned the police.  
+  
+be beginning to do 渐渐开始  
+It was beginning to get dark.  
+During the summer, I noticed that the leaves of the tree were beginning to wither.  
+  
+Suddenly, there was a slight trembling sound from below, and the captain went down to see what had happened.  
+  
+strong coffee / tea / beer ...  
+  
+weak  
+weak coffee / tea / beer ...  
+  
+### Then, her composure regained, she was ready to set off with the porter's assistance to search for any intruders who might still be lurking in her flat.  
+  
+keep / maintain one's composure  
+lose one's composure  
+recover / regain one's composure  
+  
+Then, her composure was regained, and she was ready to ...  
+  
+set off / out  
+start off / out  
+Four days after setting out, while the Titanic was sailing across the icy waters of the North Atlantic, a huge iceberg was suddenly spotted by a look-out.  
+  
+intruder n. someone who illegally enters a building or area, usually in order to steal sth.  
+  
+intrude v. to interrupt someone or become involved in their private affairs in an annoying and unwanted way  
+  
+I don't wish to intrude, but could I talk to you for a moment?  
+  
+Employers should not intrude into the private lives of their employees.  
+  
+lurk v. to wait somewhere quietly and secretly, usually because you are going to do sth. wrong  
+  
+She didn't see the figure lurking behind the bushes.  
