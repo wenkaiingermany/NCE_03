@@ -268,3 +268,108 @@ Employers should not intrude into the private lives of their employees.
 lurk v. to wait somewhere quietly and secretly, usually because you are going to do sth. wrong  
   
 She didn't see the figure lurking behind the bushes.  
+  
+### They went through the rooms, being careful to touch nothing, as they did not want to hinder the police in their search for fingerprints.  
+  
+go through sth.: to search sth. in order to find sth. in particular 搜寻  
+The Officer went through the case with great care.  
+  
+Bad weather is hampering the search for survivors.  
+  
+in search of ... = searching for ...  
+go in search of a cheap hotel  
+Soon the hobby leads to travel, perhaps to a meeting in another town, possibly a trip abroad in search of a rare specimen, for collectors are not confined to any one country.  
+  
+### The chaos was inconceivable. She had lived in the flat for thirty years and was a veritable magpie at hoarding; and it seemed as though everything she possessed had been tossed out and turned over and over.  
+  
+### At least sorting out the things she should have discarded years ago was now being made easier for her.  
+  
+sort out:  
+1. to separate one type of thing from another  
+I've sorted out the papers that can be thrown away.  
+  
+2. to arrange or organize sth. that is mixed up or untidy, so that it is ready to be used  
+We need to sort out our camping gear before we go away.  
+  
+shoudl have done 应该做却没做  
+You should have decleared that Perfume is not exempt from import duty.  
+  
+### The a police inspector arrived with a constable and she told them of her discovery of the ransacked flat.  
+  
+police inspector n. a police officer of middle rank 巡官  
+constable n. a British police officer of the lowest rank  
+  
+tell sb. of sth. (fml.) describe an event to stb.  
+He told us of his extraordinary childhood.  
+  
+ransach v. to search a place, making in untidy and causing damage, usually because you are looking for sth. 洗劫  
+  
+The house had been ransacked by burglars.  
+  
+### The inspector began to look for fingerprints, while the constable checked that the front door locks had not been forced, thereby proving that the burglars had either used skeleton keys or entered over the balcony.  
+  
+One man stayed at the wheel while two others with black stockings over their faces jumped out and smashed the window of the shop with iron bars.  
+  
+check v. make sure of sth. by examining or investigating it  
+Go and check (that) I've locked the windows.  
+  
+force / pick / break a lock 撬锁  
+  
+thereby adv.(fml.)with the result that sth. else happens 因此，由此  
+  
+therebz doing sth.  
+Regular exercise strengthens the heart, thereby reducing the risk of heart attack.  
+  
+thus doing  
+The diluted the drug, thus reducing its effectiveness.  
+The merchants began to import corn thus forcing farmers to cut their prices.  
+  
+skeleton key / passkey  
+  
+### There was no trace of fingerprints, but the inspector found a dirty red bundle that contained jewellery which the old lady said was not hers.  
+  
+trace n. a small sign that shows that sb. or sth. was present or existed  
+there is no trace of ...  
+There was no trace of anyone having entered the room since then.  
+  
+bundle n. parcel, package  
+  
+嵌入式定语从句: 既是先行词的后置定语，又是另一个分句结构的宾语  
+  
+In this part of the cave, they could hear an insistent booming sound which they found was caused by a small waterspout shooting down into a pool from the roof of the cave.  
+  
+Turning back down the main street, we quickened our pace and made our way rapidly towards the stream where we hoped the boarman was waiting.  
+  
+I hired a car the day after landing and bought a comprehensive book of maps, which I found most helpful on the cross country journey, but which I did not think I should need on the last stage.  
+  
+### So their entry into this flat was apparently not the burglars' fist job that day and they must have been disturbed.  
+  
+entry (into ...)  
+The children were surprised by the sudden entry of their teacher.  
+  
+It was dark and their entry into the camp had gone unnoticed.  
+  
+job n. (infml.) a crime, esp. stealing  
+an inside job  
+He got six months for that last job he did.  
+  
+### The inspector then asked the old lady to try to check what was missing by the next day and advised her not to stay alone in the flat for a few nights.  
+  
+### The old lady thought he was a fussy creature, but since the porter agreed with him, she rang up her daughter and asked for help in what she described as a little spot of bother.  
+  
+creature (esp. following an adjective) a person, considered in a particular way  
+  
+a fussy / strange / pathetic creature  
+  
+ring sb <-> up  
+As the cry was repeated several times, she ran to tell the manager who promptly rang up the fire-brigade.  
+  
+ring / phone sb. <-> up (BrE) = call sb. <-> up (AmE)  
+telephone / phone / call sb.  
+give sb. a call = give sb. a ring (BrE)  
+  
+help in sth.  
+Local teachers provided invaluable help in dealing with the problem.  
+  
+describe ... as ...  
+He described it as a very agreeable situation located within two small hills in the midst of which flowed a great river.  
