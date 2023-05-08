@@ -191,3 +191,68 @@ Gold Coast has an ideal climate, and so it is not surprising that it has become 
 appreciate  
 depreciate  
 The value of our house has appreciated by 50%.  
+  
+### Some things are collected deliberately in the home in an attempt to avoid waste.  
+  
+deliberately  
+intentionally  
+on purpose  
+  
+accidentally  
+by accident  
+by chance  
+  
+in an attempt to ... = in order to ...  
+  
+### Among these I would list string and brown paper, kept by thrifty people when a parcel had been opened, to save buying these two requisites.  
+  
+list one's faults  
+list one's achievements  
+save = avoid  
+save sth./doing  
+  
+Setting down clear rules from the start will save arguments later on.  
+  
+A stitch in time saves nine.  
+  
+save sb. sth. / doing sth.  
+If you lend me some money, it will save me a trip to the bank.  
+  
+If you tell her the news, it will save me calling her.  
+  
+They could be saved so much misery and expense if they chose to live in the city where they rightly belong.  
+  
+### Collecting small items can easily become a mania.  
+  
+### I know someone who always cuts sketches out from newspapers of model clothes that she would like to buy if she had the money.  
+  
+know of / about  
+hear of / about  
+learn of / about  
+  
+Verrazano, an Italian about whom little is known, sailed into New York Harbour in 1524 and named it Angouleme.  
+  
+... if she could afford them.  
+... if she could afford such purchases.  
+  
+### As she is not rich, the chances that she will ever be able to afford such purchases are remote; but she is never sufficiently strong-minded to be able to stop the practice.  
+  
+chances that ... / of ... are remote / slight / slim / small  
+  
+chances that ... / of ... are high / good  
+  
+The following day, however, the doctor consoled him by telling him that his chances of being able to leave hospital in time for New Year celebrations were good.  
+  
+there is little chance of ...  
+There is little chance of her being able to afford such purchases.  
+  
+strong-minded enough  
+  
+On the other hand, your stomach would turn at the idea of frying potatoes in animal fat--the normally accepted practice in many northern countries.  
+  
+### It is a harmless habit, but it litters up her desk to such an extent that every time she opens it, loose bits of paper fall out in every direction.  
+  
+litter (up)...  
+The garden was soon littered with chunks of metal which had once made up a lawn mower.  
+  
+in all directions  
