@@ -256,3 +256,86 @@ litter (up)...
 The garden was soon littered with chunks of metal which had once made up a lawn mower.  
   
 in all directions  
+  
+### Collecting as a serious hobby is quite different and has many advantages.  
+In winter, however, life at the monastery is quite different.  
+  
+### It provides relaxation for leisure hours, as just looking at one's treasures is always a joy.  
+  
+### One does not have to go outside for amusement, since the collection is housed at home.  
+  
+The refugees have been fed, clothed and housed by welfare organizations aroung the world.  
+  
+The Palace Meseum houses the biggest collection of antiques in China.  
+  
+### Whatever it consists of, stamps, records, first editions of books, china, glass, antique furniture, pictures, model cars, stuffed birds, toy animals, there is always something to do in connection with it, from finding the right place for the lastest addition, to verifying facts in reference books.  
+  
+Whatever it is made up of, ...  
+Whatever it is composed of, ...  
+Whatever it comprises, ...  
+  
+in connection with ... 關於  
+concerning  
+regarding  
+respecting  
+relating to  
+  
+I am writing to you in connection with your job application.  
+  
+reference book 參考書  
+  
+bibliograph 參考書目  
+  
+### This hobby educates one not only in the chosen subject, but also in general matters which have some bearing on it.  
+  
+have ... bearing on ... 与...有关  
+Exercise has a direct bearing on how healthy you are.  
+His private life has no bearing on his competence as a manager.  
+  
+... which have some connection with it.  
+... which have some relationship with it.  
+  
+### There are also other benefits. One wants to meet like-minded collectors, to get advice, to compare notes, to exchange articles, to show off the latest find.  
+  
+meet v. get to know, get acquainted with...  
+  
+I'd like you to meet one of my best friends, Peter.  
+  
+You can stretch your legs on the spacious decks, play games, meet interesting people and enjoy good food ...  
+  
+compare notes (with sb)  
+exchange ideas or opinions  
+  
+We saw the play separately and compared notes afterwards.  
+  
+She raised her wrist, showing off a sparkling diamond bracelet.  
+  
+My new secretary was a marvelous find.  
+The most valuable find of all was the ship's log book, parts of which it was still possible to read.  
+  
+### So one's circle of friends grows.  
+in political circles  
+in legal circles  
+in literary circles  
+  
+### Soon the hobby leads to travel, perhaps to a meeting in another town, possibly a trip abroad in search of a rare specimen, for collectors are not confirmed to any one country.  
+  
+in search of ...: searching for ...  
+Scientists are in search of a cure for the disease.  
+  
+### Over the years, one may well become and authority on one's hobby and will very probably be asked to give informal talks to little gathering and then, if (he is) successful, to larger audiences.  
+  
+may / might / could well: used to say that sth. is likely to happen or is likely to be true 可能  
+What you say may well be true.  
+You could try the drugstore, but it might well be closed by now.  
+  
+Yuan Longping is a leading authority on hybrid rice.  
+  
+gathering n. a group of people meeting together  
+a social / family gathering  
+a gathering of religious leaders  
+  
+### It this way self-confidence grows, first from mastering a subject, then from being able to talk about it.  
+  
+### Collecting, by occupying spare time so constructively, makes a person contented, with no time for boredom.  
+  
