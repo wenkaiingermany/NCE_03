@@ -150,3 +150,92 @@ My birthday is near at hand.
 The signature must be made by hand.  
 They are always on hand whenever you need them.  
 I can't remember his phone number off hand.  
+  
+### He is therefore forgiven if (he is) late for a dinner party.  
+Metals expand when (they are) heated and contract when (they are) cooled.  
+  
+Francis Preston Blair Jr., although (he was) born in Kentucky, lived and practiced in Missouri.  
+  
+Judges, however wise or eminent (they are), are human and can make mistakes.  
+  
+While (he was) on a walking tour with his wife, he stopped to talk to a workman.  
+  
+We'll resolve the Taiwa issue with peaceful means when (it is) ever possible, with force when (it is) necessary.  
+  
+### But people are often reproached for unpunctuality when their only fault is cutting things fine.  
+  
+cut things fine 时间不留余地，掐钟点  
+He cut things fine by reaching the classroom only 20 seconds before the bell rang.  
+  
+### It is hard for energetic, quick-minded people to waste time, so they are often tempted to finish a job before setting out to keep an appointment.  
+  
+be / feel tempted to do 很想...  
+I feel tempted to take a day off.  
+Several times since, she has been tempted to ring him up. He pride, however, would not let her to do so.  
+  
+set out to do: begin a job, taks, etc with a particular aim or goal.  
+  
+The journalist immediately set out to obtain these important facts, but he took a long time to send them.  
+  
+Dmitri at once set out to find the thief.  
+  
+have an appointment  
+make an appointment  
+keep an appointment  
+cancel an appointment  
+break an appointment  
+  
+### If no accidents occur on the way, like punctured tyres, diversions of traffic, sudden descent of fog, they will be on time.  
+  
+a flat / burst / punctured tyre / tire  
+  
+diversion n.(BrE) = detour (AmE) a different way that traffic is sent when the usual road are closed  
+  
+They turned back because of traffic diversions.  
+  
+come down / descend 下雾  
+A dense fog came down / descended in the afternoon.  
+  
+lift / clear / disperse 雾散  
+The fog had lifted / cleared / dispersed by late morning.  
+  
+### They are often more industrious, useful citizens than those who are never late.  
+  
+### The over-puntual can be as much a trial to others as the unpunctual.  
+  
+be a trial to sb.  
+She was a trial to her parents when she was younger.  
+  
+as much as ...  
+That is as much as to say I am a liar.  
+I hope you have as much fun as I did.  
+He is as much a bore as his father.  
+She is as much a beauty as her mother.  
+  
+### The guest who arrives half an hour too soon is the greatest nuisance.  
+  
+... too early / soon  
+He arrived ten minutes too early.  
+  
+... too late  
+He arrived ten minutes too late.  
+  
+nuisance n. a thing, person or situation that is annoying or causes trouble or problems  
+  
+I don't want to be a nuisance so tell me if you want to be alone.  
+  
+### Some friends of my family had this irritating habit. The only things to do was ask them to come half an hour later than the other guests. Then they arrived just when we wanted them.  
+  
+动词不定式做表语时，若前面出现了实义动词"do", 则常去掉"to"  
+All I have to do is dream.  
+The best thing you can do now is write her an apology.  
+All I wanted was to help him.  
+The only way that they can preserve their history is to recount it as sagas--legends handed down from one generation of story-tellers to another.  
+  
+动词不定式做"except/but"的宾语时，若前面出现了实义动词"do"则常去掉"to"  
+  
+They did nothing but / except complain.  
+I've done everything you wanted but / except make the beds.  
+We have no choice but / except to wait here.  
+  
+
