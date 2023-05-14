@@ -238,4 +238,91 @@ They did nothing but / except complain.
 I've done everything you wanted but / except make the beds.  
 We have no choice but / except to wait here.  
   
-
+### If you are catching a train, it is always better to be comfortably early than even a fraction of minute too late.  
+  
+catch a train / bus / plane  
+  
+a fraction of a second / a minute / an inch  
+  
+She hesitated for a fraction of a second before anawering.  
+The car stopped within a fraction of an inch of the wall.  
+  
+### Although being early may mean wasting a little time, this will be less than (it will be) if you miss the train and have to wait an hour or more for the next one; and you avoid the frustration of arriving at the very moment when the train is drawing out of the station and being unable to get on it.  
+  
+He's never more annoying than (he is) when he's trying to help.  
+  
+Sometimes patients are more depressed six months later than (they are) when they first hear the bad news.  
+  
+pull out / draw out of the station  
+pull / draw in / into the station  
+  
+The train slowly drew in / drew into the station.  
+  
+### An even harder situation is to be on the platform in good time for a train and still to see it go off without you.  
+  
+in good time (for sth.) (BrE): 早早就...  
+  
+There wasn't much traffic so we got there in good time.  
+He arrived in good time for dinner.  
+  
+### Such an experience befell a certain youg girl the first time she was travelling alone.  
+  
+befall (befell befallen) = overtake / happen to 不幸的事降临到...  
+  
+A great misfortune befell him.  
+We know instinctively, just as beekeepers with their bees, that misfortune might overtake us if the important events of our lives were not related to it.  
+  
+### She entered the station 20 minutes before the train was due, since her parents had impressed upon her that it would be be unforgivebale to miss it and cause the friends with whom she was going to stay to make two journeys to meet her.  
+  
+due: adj. 到期的，到时间的  
+When is your bady due?  
+The train is due (in) at 8:00.  
+  
+It says here the next train is due in at 6:30.  
+I know, but I don't know whether I can make that one. I'd rather call you from the station than have you waiting around for an hour.  
+  
+impress sth. on / upon sb.  
+Father impressed on me the importance of hard work.  
+  
+I had always impressed upon the children that if they worked hard they would succeed in life.  
+  
+cause sb. to do 使得某人做某事  
+  
+make a journey  
+  
+### She gave her luggage to a porter and showed him her ticket. To her horror he said that she was two hours too soon. She felt in her handbag for the piece of paper on which her father had written down all the details of the journey and gave it to the porter. 
+  
+feel for ... 摸着找...  
+She felt in her bag for a pencil.  
+I felt for the switch on the wall and turned it on.  
+  
+### He agreed that a train did come into the station at the time on the paper and that it did stop, but only to take on mail, not passengers.  
+  
+take on... 上货/乘客  
+The bus stopped to take on more passengers.  
+The ship took on more fuel here.  
+  
+The girl asked to see a timetable, feeling sure that her fahter could not have made such a mistake.  
+  
+timetable / schedule  
+  
+train / railway / railroad ~  
+college / scholl ~  
+exam / examination ~  
+  
+### The porter went to fetch one and arrived back with a flourish and pointed out a microscopic 'o' beside the time of the arrival of the train at his station; this little 'o' indicated that the train only stopped for mail.  
+  
+do sth. with a flourish  
+The waiter handed me the menue with a flourish.  
+  
+### The girl, tears streaming down her face, begged to be allowed to slip into the guard's van.  
+  
+### But the station master was adamant: rules could not be broken. And she had to watch the train disappear towards her destination while she was lefe behind.  
+  
+break / violate rules  
+ignore / disregard rules  
+make / formulate / establish / lay down rules  
+obey / comply with / abide by / observe rules  
+  
+leave sb. / sth <-> behind  
+Don't leave me behind!  
