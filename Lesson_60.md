@@ -326,3 +326,82 @@ obey / comply with / abide by / observe rules
   
 leave sb. / sth <-> behind  
 Don't leave me behind!  
+  
+### The bank must obey its customer's instruction, and not those of anyone else.  
+  
+obey instructions  
+take instructions  
+follow instructions  
+await instructions  
+  
+### When, for example, a customer first opens an account, he instructs the bank to debit his account only in respect of cheques drawn by himself.  
+  
+US foreign policy in respect of / with respect to / with regard to / concerning / regarding / respecting Cuba.  
+  
+### He gives the bank specimens of his signature, and there is a very firm rule that the bank has no right or authority to pay out a customer's money on a cheque on which its customer's signature has been forged.  
+  
+signature  
+autograph  
+  
+I've got lots of famous actors' autographs.  
+  
+sign  
+Where do you want me to sign my name?  
+  
+sign for ...  
+Could you sign for this package please?  
+  
+initial  
+The memo has been initialed by the president.  
+  
+authority n. [U] right to act in a specific way  
+Only the treasurer has authority to sign checks.  
+  
+pay out: to pay a lot of money for something  
+We're paying out $300 a month on our mortgage.  
+  
+### It makes no difference that the forgery may have been a very skilful one: the bank must recognize its customer's signature.  
+  
+make a difference  
+make some difference  
+make no difference  
+  
+### For this reason there is no risk to the customer in the practice, adopted by banks, of printing the customer's name on his cheques.  
+  
+for this reason  
+so  
+thus  
+hence  
+therefore  
+thereupon  
+ergo  
+accordingly  
+as a result  
+consequently  
+as a consequence  
+in consequence  
+  
+the risk of serious injury  
+There is no risk to customers  
+  
+practice n. 习惯性的做法，惯例  
+the practice of doing sth.  
+the practice of closing shops on Sundays  
+the practice of dumping waste into the sea  
+  
+### If this facilitates forgery, it is the bank which will lose, not the custormer.  
+  
+facilitate  
+ease / smooth the way for ...  
+  
+The agreement will ease / smooth the way for other coutries to join the EU.  
+  
+it is ... that / who(m)...  
+it is .... which ... (尤其用于科技说明文体)  
+  
+It is heat which makes matter expand and melt.  
+It is the release of nuclear energy within the Sun which enables it to send out so much energy to the earth.  
+  
+if ..., it is ... that / which / who(m) ..., not ...  
+If this facilitates forgery, it is the bank which will lose, not the customer.  
+If there is one -- which I take leave to doubt -- then it is older people who create it, not the young themselves.  
